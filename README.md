@@ -1,8 +1,6 @@
 # alloe
 Allez, on écrit !
 
-Cette année, le weekend choisi est celui des 29 et 30 octobre 2022.
-
 Le projet alloé est un projet d'écriture collaboratif qui permet, le temps d'un weekend, à tous ceux qui s'inscriront de participer à l'écriture d'un roman. Le fonctionnement est simple :
 
 - en amont, un scénario est défini par l'auteur du projet
