@@ -1,3 +1,3 @@
 ---
-Auteur: Michelessi
+auteur: Michelessi
 ---

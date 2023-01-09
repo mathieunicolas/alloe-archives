@@ -1,10 +1,5 @@
-# Chapitre 8
-
+---
 Auteur: Alice Ash
-Partie: À Couteaux Tirés
-
-[Chapitre 7](Chapitre%207%20c74011709fa24a26a9020318d9531db0.md) / [Chapitre 9](Chapitre%209%20b2ceb8113274484ba0d4a9ba246a7556.md) 
-
 ---
 
 Ça fait seulement trois minutes qu'Axel attend le bus – ressenti quinze – quand enfin il le voit de loin. Ligne 11, rendez-vous à la MJC de Saint-Fouillard pour la répèt. Il y a encore beaucoup de détails à caler, le batteur n'est pas encore bien en place sur certains morceaux, il faut revoir quelques enchaînements d'accords, mais dans l'ensemble ça avance bien. Le bus s'arrête devant lui, la porte s'ouvre, il grimpe les deux marches et valide sa carte en lançant un bonjour distrait au chauffeur, perdu dans ses pensées artistiques. Ce dernier lui répond fort jovialement, ce qui est toujours appréciable quand on évolue quotidiennement dans une jungle urbaine souvent hostile.
@@ -19,28 +14,24 @@ Un coup de frein brusque le sort de la torpeur dans laquelle la musique dans ses
 
 *Le couteau dans le sac commence à briller.*
 
-La jeune mère demande brusquement au moustachu d'arrêter de fixer son jeune enfant de cette façon. « Comment ? » lui demande abruptement l'homme. « Comme un libidineux » répond sans sourciller la jeune femme. L'homme ouvre la bouche pour répliquer, mais la mamie range son tricot en marmonnant qu'en plus, c'est insupportable de l'entendre renifler sans arrêt comme ça, et l'homme lui jette un regard presque haineux. Axel se sent interloqué par cette scène mais son attention est détournée par un éclat de voix. C'est le joli couple, les amoureux, elle vient de lui lancer « Mais arrête avec ça, c'est énervant à la fin ! ». Il semble prendre la mouche et lui parle à l'oreille, calmement, Axel ressent une colère froide émaner de lui.
+La jeune mère demande brusquement au moustachu d'arrêter de fixer son jeune enfant de cette façon. « Comment ? » lui demande abruptement l'homme. « Comme un libidineux » répond sans sourciller la jeune femme. L'homme ouvre la bouche pour répliquer, mais la mamie range son tricot en marmonnant qu'en plus, c'est insupportable de l'entendre renifler sans arrêt comme ça, et l'homme lui jette un regard presque haineux. Axel se sent interloqué par cette scène mais son attention est détournée par un éclat de voix. C'est le joli couple, les amoureux, elle vient de lui lancer « Mais arrête avec ça, c'est énervant à la fin ! ». Il semble prendre la mouche et lui parle à l'oreille, calmement, Axel ressent une colère froide émaner de lui.
 
-Autre coup de frein brusque, il manque de tomber et bouscule la passagère devant lui, une étudiante probablement. Il s'excuse timidement et reçoit en retour un « Ouais c'est bon, tu pourrais faire gaffe aussi ! ». Il regarde alors autour de lui à la recherche d'un peu de soutien des autres passagers, qui le dévisagent pourtant avec du reproche dans le regard. Il s'excuse à nouveau petitement et s'accroche plus fermement à la barre du bus. Et remarque qu'encore une fois, personne n'entre et personne ne sort. Les jeunes ados montent le ton, il est question de skate, ou de problèmes avec les devoirs au collège, Axel ne saisit pas bien les tenants et aboutissants, il voit juste le moustachu se diriger vers eux et leur intimant vertement de se calmer, avec une voix grave et grondante. Les jeunes ados obtempèrent à contre-coeur, avec un regard mauvais.
+Autre coup de frein brusque, il manque de tomber et bouscule la passagère devant lui, une étudiante probablement. Il s'excuse timidement et reçoit en retour un « Ouais c'est bon, tu pourrais faire gaffe aussi ! ». Il regarde alors autour de lui à la recherche d'un peu de soutien des autres passagers, qui le dévisagent pourtant avec du reproche dans le regard. Il s'excuse à nouveau petitement et s'accroche plus fermement à la barre du bus. Et remarque qu'encore une fois, personne n'entre et personne ne sort. Les jeunes ados montent le ton, il est question de skate, ou de problèmes avec les devoirs au collège, Axel ne saisit pas bien les tenants et aboutissants, il voit juste le moustachu se diriger vers eux et leur intimant vertement de se calmer, avec une voix grave et grondante. Les jeunes ados obtempèrent à contre-coeur, avec un regard mauvais.
 
 C'est alors qu'Axel constate que ce bus si calme s'est rempli d'un murmure qui semble peu à peu s'expanser dans l'espace clos. Encore un arrêt, personne ne sort, personne n'entre, le chauffeur râle avec des mots de plus en plus crus, repart avec une conduite nerveuse. Le murmure devient grondement, tout le monde se parle maintenant. Les tons sont secs, mordants, les invectives sont de moins en moins voilées.
 
-L'amoureuse traite son amoureux de « Connard ! » et il lui répond « Tu sais que toi t'es une belle salope ! ».
+L'amoureuse traite son amoureux de « Connard ! » et il lui répond « Tu sais que toi t'es une belle salope ! ».
 
 La jeune mère réprimande son bébé qui chouine en le menaçant de l'abandonner.
 
-Le moustachu, revenu à sa place, est pris à parti par la mamie au tricot glapissante qui le trouve beaucoup trop grossier à son goût. Il lui balance un « Qu'est-ce que t'as, vieille peau ! » avant de repartir engueuler les ados qui avaient recommencé à insulter les passagers, le chauffeur, le bus, leurs profs, leurs parents, la société et la terre entière.
+Le moustachu, revenu à sa place, est pris à parti par la mamie au tricot glapissante qui le trouve beaucoup trop grossier à son goût. Il lui balance un « Qu'est-ce que t'as, vieille peau ! » avant de repartir engueuler les ados qui avaient recommencé à insulter les passagers, le chauffeur, le bus, leurs profs, leurs parents, la société et la terre entière.
 
-L'étudiante se retourne brusquement vers lui et lui crache : « Si tu recommences à me toucher, petit pervers, je t'en retourne une ! ».
+L'étudiante se retourne brusquement vers lui et lui crache : « Si tu recommences à me toucher, petit pervers, je t'en retourne une ! ».
 
 *Le couteau dans le sac brille maintenant d'une lumière joyeuse.*
 
-Et Axel se rend compte avec stupeur que tout le monde, vraiment tout le monde est en train de se rudoyer sans filtre. Les insultes les plus horribles atteignent ses oreilles, tandis qu'une fillette indique à son grand-père qu'il est, selon elle, une vieille patate poilue. Et c'est comme si une force invisible empêchait les passagers de sortir de cette ambiance étrange, et d'y entrer. L'étudiante se retourne encore une fois vers lui et lui hurle : « Tu veux me violer, petit bâtard, c'est ça, tu veux me violer ? », et Axel remarque de manière impromptue que son sac à dos rouge lui paraît si lourd... Tandis qu'il bafouille une réponse, son esprit s'accroche désespérément à la musique, accords de septième, et si on s'essayait à arranger des standards jazzy à notre sauce rock ça me plairait bien faut que je demande aux autres mais qu'est-ce qu'il se passe dans ce putain de bus et quand est-ce que j'arrive et qu'est-ce que j'ai bien pu foutre dans mon sac pour qu'il soit si lourd...
+Et Axel se rend compte avec stupeur que tout le monde, vraiment tout le monde est en train de se rudoyer sans filtre. Les insultes les plus horribles atteignent ses oreilles, tandis qu'une fillette indique à son grand-père qu'il est, selon elle, une vieille patate poilue. Et c'est comme si une force invisible empêchait les passagers de sortir de cette ambiance étrange, et d'y entrer. L'étudiante se retourne encore une fois vers lui et lui hurle : « Tu veux me violer, petit bâtard, c'est ça, tu veux me violer ? », et Axel remarque de manière impromptue que son sac à dos rouge lui paraît si lourd... Tandis qu'il bafouille une réponse, son esprit s'accroche désespérément à la musique, accords de septième, et si on s'essayait à arranger des standards jazzy à notre sauce rock ça me plairait bien faut que je demande aux autres mais qu'est-ce qu'il se passe dans ce putain de bus et quand est-ce que j'arrive et qu'est-ce que j'ai bien pu foutre dans mon sac pour qu'il soit si lourd...
 
 Alors que son regard cherche à s'échapper frénétiquement de ce relationnel pour le moins tendu avec l'étudiante, Axel reconnaît par la vitre le quartier de la MJC. Il réussit in extremis à presser le bouton pour demander au chauffeur de s'arrêter, lequel conduit maintenant peut-être un peu dangereusement et freine de manière tellement violente que l'ensemble des passagers, véritablement surpris, a un hoquet de silence. Axel en profite pour se glisser à l'extérieur, il sent brièvement la main de l'étudiante qui agrippe la bretelle de son sac à dos et se retrouve néanmoins sur le trottoir, à moitié abasourdi. Les portes du bus se referment et il démarre lentement. Axel a juste le temps de voir la mamie sortir son tricot de son sac, tandis que le moustachu sourit en direction du bébé. Et que les amoureux s'embrassent à pleine bouche. Axel fronce les sourcils. Mais il est un peu en retard. Il court vers la MJC à en perdre haleine, comme si sa course effrénée pouvait le laver de ce qu'il vient de vivre.
 
 *Dans son sac à dos rouge, le couteau s'est terni, presque vexé de l'interruption soudaine du voyage en bus.*
-
----
-
-[Chapitre 7](Chapitre%207%20c74011709fa24a26a9020318d9531db0.md) / [Chapitre 9](Chapitre%209%20b2ceb8113274484ba0d4a9ba246a7556.md)

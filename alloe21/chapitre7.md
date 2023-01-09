@@ -1,10 +1,5 @@
-# Chapitre 7
-
+---
 Auteur: Xavier
-Partie: À Couteaux Tirés
-
-[Chapitre 6](Chapitre%206%206fc918810f3845768934fccf7b634119.md) / [Chapitre 8](Chapitre%208%20a19a6cb3704b49d9a54f835119ce64fb.md) 
-
 ---
 
 Stéphane gare la voiture sur le parking de la mairie. Sitôt le contact coupé, il s’accorde un petit temps de pause ; les événements s’accumulent et il a besoin de souffler pour y voir plus clair. Avec son père, ça ne s’arrange pas : toujours les mêmes discussions qui se terminent sous l’orage dans un claquement de porte. Mais bon maintenant, il s’est mis comme le paternel à la mode de l’ordinateur et des réseaux sociaux. Justement, il sort son portable pour vérifier l’adresse de Marie avant de lui rendre une visite imprévue. Tiens, un nouveau message !
@@ -67,10 +62,6 @@ Stéphane l’interrompt.
 
 — Sauriez-vous s’il a emporté ce couteau loin d’ici ? Je pourrai le récupérer rapidement et terminer la réparation.
 
-— Oh, mon bon monsieur, Axel est parti à Saint Fouillard dans la MJC pour jouer avec son groupe rock. Selon lui, ce couteau serait « top » comme il dit pour les photos de la pochette du CD.
+— Oh, mon bon monsieur, Axel est parti à Saint Fouillard dans la MJC pour jouer avec son groupe rock. Selon lui, ce couteau serait « top » comme il dit pour les photos de la pochette du CD.
 
 Le visage blême, Stéphane prend rapidement congé de la mamie.
-
----
-
-[Chapitre 6](Chapitre%206%206fc918810f3845768934fccf7b634119.md) / [Chapitre 8](Chapitre%208%20a19a6cb3704b49d9a54f835119ce64fb.md)

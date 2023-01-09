@@ -1,3 +1,3 @@
 ---
-Auteur: Christophe Oyra
+auteur: Christophe Oyra
 ---

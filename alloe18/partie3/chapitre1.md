@@ -1,3 +1,3 @@
 ---
-Auteur: NATALIA
+auteur: NATALIA
 ---

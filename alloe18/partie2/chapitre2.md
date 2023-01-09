@@ -1,3 +1,3 @@
 ---
-Auteur: Sylvie
+auteur: Sylvie
 ---

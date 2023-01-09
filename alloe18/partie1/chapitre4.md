@@ -1,3 +1,3 @@
 ---
-Auteur: Ju2
+auteur: Ju2
 ---

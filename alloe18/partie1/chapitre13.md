@@ -1,3 +1,3 @@
 ---
-Auteur: Lou Pavilla
+auteur: Lou Pavilla
 ---

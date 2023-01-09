@@ -1,3 +1,3 @@
 ---
-Auteur: hannef
+auteur: hannef
 ---

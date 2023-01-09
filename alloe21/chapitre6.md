@@ -1,10 +1,5 @@
-# Chapitre 6
-
+---
 Auteur: Priam Demy
-Partie: À Couteaux Tirés
-
-[Chapitre 5](Chapitre%205%204fdb26ad4ab749f38cd4adc54d8bece9.md) / [Chapitre 7](Chapitre%207%20c74011709fa24a26a9020318d9531db0.md) 
-
 ---
 
 Colette, bien sûr, est aux anges en les voyant arriver.
@@ -144,7 +139,3 @@ Il reste là debout une seconde, ouvrant et fermant la bouche comme s’il cherc
 — Bon, tente timidement Didier. Bon… Ça vous dit une promenade?
 
 En une minute, tous ont déserté la petite maison de Colette comme s’ils avaient le diable aux trousses.
-
----
-
-[Chapitre 5](Chapitre%205%204fdb26ad4ab749f38cd4adc54d8bece9.md) / [Chapitre 7](Chapitre%207%20c74011709fa24a26a9020318d9531db0.md)

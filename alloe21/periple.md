@@ -1,17 +1,16 @@
-# Périple
-
+---
+title: Périple
 Auteur: Bubphie
-Partie: Les Aventures du Couteau
-
+---
 Le marteau s’écrase lourdement.
 
 — Lot n°0213, couteau type celtique adjugé au monsieur barbu au fond pour 50 €.
 
-*Mmmh ma première victime de l’année, comment vais-je bien pouvoir l’utiliser ?*
+*Mmmh ma première victime de l’année, comment vais-je bien pouvoir l’utiliser ?*
 
 *Première étape, l’affûtage. Y’a pas à dire je sens que mon fil mérite d’être redressé. J’espère qu’il a un bon fusil.*
 
-*Objectif final, retrouver le morveux qui me colle au cul tous les ans ou encore mieux avec son fils, comme ça je termine une lignée de Veilleurs, c’est toujours ça de pris ! Je sens leurs présences, ils sont loin, il va falloir voyager.*
+*Objectif final, retrouver le morveux qui me colle au cul tous les ans ou encore mieux avec son fils, comme ça je termine une lignée de Veilleurs, c’est toujours ça de pris ! Je sens leurs présences, ils sont loin, il va falloir voyager.*
 
 *Je suis sur place, il est temps de changer de mains, celles-ci commencent à fortement m’ennuyer.*
 
@@ -33,13 +32,13 @@ Crissements de pneus sous la pluie automnale, la voiture part en embardée, perc
 
 L’agent Jonchier se dirige vers le fond du magasin d’un pas assuré.
 
-*Il est tout près, je le sens. Là ! C’est lui !*
+*Il est tout près, je le sens. Là ! C’est lui !*
 
-*Quatrième étape, le prendre en filature. Il finira bien par me mener à son fils. Et là, je n’aurais plus qu’à trouver comment les détruire. Je les égorge tous les deux ? Je laisse le fils regarder son père se vider de son sang avant de le noyer dedans ? Ouh, il y a tellement de possibilités ! J’en ai le fil qui frémit.*
+*Quatrième étape, le prendre en filature. Il finira bien par me mener à son fils. Et là, je n’aurais plus qu’à trouver comment les détruire. Je les égorge tous les deux ? Je laisse le fils regarder son père se vider de son sang avant de le noyer dedans ? Ouh, il y a tellement de possibilités ! J’en ai le fil qui frémit.*
 
-— Bonjour Monsieur, notre magasin va bientôt fermer. Je peux peut-être vous renseigner ?
+— Bonjour Monsieur, notre magasin va bientôt fermer. Je peux peut-être vous renseigner ?
 
-*Mais c’est qui ce vieux schnock ?! Il pourrit mes réflexions ! Mauvais endroit, au mauvais moment… tant pis pour lui !*
+*Mais c’est qui ce vieux schnock ?! Il pourrit mes réflexions ! Mauvais endroit, au mauvais moment… tant pis pour lui !*
 
 *Et le Veilleur qui s’est fait la malle.*
 

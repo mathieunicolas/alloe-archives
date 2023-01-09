@@ -1,10 +1,5 @@
-# Chapitre 1
-
+---
 Auteur: Lou Pavilla
-Partie: À Couteaux Tirés
-
-[Chapitre 2](Chapitre%202%20e17cc7c3a1014050bc81dac50d4349f4.md) 
-
 ---
 
 *Ce n’est d’abord qu’un frisson métallique, un picotis diffus qui lui mordille le dos et la mitre. Un frémissement glacé qui le tire de son sommeil raide et gelé. Puis c’est un tressaillement irrépréssible qui l’ébranle, de la pointe au talon, et le tire tout à fait de son apathie.*
@@ -238,7 +233,3 @@ C'est moi ? Qui ai fait ça ? **Songe-t-il, complètement ahuri.
 *Dégoûté, le couteau cesse de se tendre vers les esprits tourmentés en prenant bien soin de se gorger des restes de colère qui parfument l'air. Ils sont revenus à eux, ils ne l'écouteront plus désormais et leurs sentiments sont inutiles. Il a besoin de violence, d'êtres sans foi ni lois prêt à se déchirer la gorge à coup de dents, pas de loques occupées à s’apitoyer sur leur sort. S'il voulait les soumettre à nouveau, il devrait utiliser ses pouvoirs, et il préfère les conserver pour quelque chose de plus intéressant. Retisser des liens jusqu'à leur subconscient pour manipuler leur pulsion lui prendrait trop de temps, pour une compensation médiocre. Pousser une gentille famille à s'entre-tuer n'est qu'un pâle amusement, en comparaison de ce qu'il pourrait faire de ses talents. De toute façon, il ne compte pas s'attarder ici. Il a d'autres choses, bien plus divertissantes, à faire, aussi partira-t-il dès demain.*
 
 *Cela lui a pris du temps de recouvrer toute sa lucidité, mais il sait à présent que quelqu'un le recherche. Quelqu'un veut s'emparer de lui. Et il n'est pas encore certain de devoir laisser cette créature agir à sa guise.*
-
----
-
-[Chapitre 2](Chapitre%202%20e17cc7c3a1014050bc81dac50d4349f4.md)

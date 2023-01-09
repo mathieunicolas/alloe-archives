@@ -1,3 +1,3 @@
 ---
-Auteur: Sedrao
+auteur: Sedrao
 ---

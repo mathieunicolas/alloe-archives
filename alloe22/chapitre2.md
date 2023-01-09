@@ -1,3 +1,7 @@
+---
+auteur: Chloé
+---
+
 J'arrivais à la gare Lille Flandres en marchant d'un bon pas. J'avais hâte, mais tellement hâte. Je n'attendais que ça depuis des heures. Je jetais un coup d’œil à ma tenue et grimaçais. J'avais mon éternel look d'étudiant, avec des baskets un peu crasseuses, un jean usé aux genoux et un sweat-shirt un peu trop grand. J'aurais peut-être dû essayer de faire un effort. Cependant, je n'avais pas eu le temps de bien me préparer ce matin avant de partir au travail, ni celui de repasser par chez moi avant de venir à la gare. J'étais si impatient que je bousculais quelques personnes en traversant le hall. Je marmonnais des excuses sans m'arrêter. Il était dix-huit heures, tout le monde sortait du travail, la gare était bondée. Alors que j'allais arriver devant les quais, mon téléphone vibra dans ma poche. Quand je le sortis, je vis que j'avais un SMS.
 
 --- Désolé, le train a du retard ! On est immobilisé sur les voies juste avant la gare :(

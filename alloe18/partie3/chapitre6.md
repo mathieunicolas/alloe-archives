@@ -1,3 +1,3 @@
 ---
-Auteur: KIKI76
+auteur: KIKI76
 ---

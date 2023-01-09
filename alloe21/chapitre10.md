@@ -1,10 +1,5 @@
-# Chapitre 10
-
+---
 Auteur: NATALIA
-Partie: À Couteaux Tirés
-
-[Chapitre 9](Chapitre%209%20b2ceb8113274484ba0d4a9ba246a7556.md) / [Chapitre 11](Chapitre%2011%20cbfd85c6a622401286befebcacba29ff.md) 
-
 ---
 
 *Je me suis introduit sans difficulté. Dans sa vie. Dans son sac. Dans ce lieu, dédié visiblement aux accords dissonants des voix et des instruments. À l’entrée, j’ai senti une présence pesante, un homme dont le cœur cognait fort dans la poitrine. Avec d’énormes pognes faites pour le combat à mains nues, dont les phalanges craquelées suintaient de rage et d’espoir déçus.*
@@ -38,7 +33,3 @@ Axel prend à témoin ses amis, restés muets, visiblement choqués par la scèn
 En montant dans sa voiture, le binoclard me pose avec précaution à côté de lui, passe un coup de fil — il rentre à la maison, il va être en retard. La nuit est tombée, le temps est à la pluie et aux embouteillages. Le trajet s'annonce long et pénible. Bien. Un nouveau Veilleur. Inexpérimenté, donc. J’en ai pour preuve la serviette élimée à l’effigie de Bob l’Éponge dans laquelle il m’a enveloppé. Pour me cacher des regards fureteurs ? La poche de son manteau aurait été plus adéquate. Et ma lame peut transpercer le tissu comme son âme en un claquement de doigts.
 
 Stéphane ne se doute pas de l’étendue de mon influence néfaste. Jointures serrées sur le volant, il fait une queue de poisson puis deux, en marmonnant entre ses dents que les vieux devraient être interdits de bagnole, puis engueule un groupe de jeunes traversant au feu rouge au prétexte qu’ils sont déguisés. A la radio, les plus grands tubes de Métal Vomit et Marilyn Manson se succèdent. Le Veilleur se met à hurler dans l’habitacle en injuriant copieusement la programmation de la seule fréquence qu’il arrive à capter ce soir. La colère mène à la violence, Stéphane. Je sens que nous allons devenir amis.
-
----
-
-[Chapitre 9](Chapitre%209%20b2ceb8113274484ba0d4a9ba246a7556.md) / [Chapitre 11](Chapitre%2011%20cbfd85c6a622401286befebcacba29ff.md)
