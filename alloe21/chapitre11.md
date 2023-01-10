@@ -1,5 +1,5 @@
 ---
-Auteur: Chloé
+auteur: Chloé
 ---
 
 Rien. Il n’y a rien dans tous ces textes issus du passé. Stéphane se laisse aller contre sa chaise, épuisé. Et désespéré aussi. Comment se débarrasser de ce maudit couteau ? Il est si près du but, il touche la fin de sa quête du bout du doigt… mais elle lui échappe et il pourrait presque entendre le couteau ricaner. Il regarde la liste qu’il a dressée. Ses ancêtres ont tout essayé : le feu de la forge ou d’un volcan, les acides, les explosifs, les éboulements… Il y en a même un qui a tenté de le perdre au milieu d’un océan. Le couteau réapparaît toujours, sans aucune égratignure et prêt à recommencer ses méfaits.

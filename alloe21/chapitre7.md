@@ -1,5 +1,5 @@
 ---
-Auteur: Xavier
+auteur: Xavier
 ---
 
 Stéphane gare la voiture sur le parking de la mairie. Sitôt le contact coupé, il s’accorde un petit temps de pause ; les événements s’accumulent et il a besoin de souffler pour y voir plus clair. Avec son père, ça ne s’arrange pas : toujours les mêmes discussions qui se terminent sous l’orage dans un claquement de porte. Mais bon maintenant, il s’est mis comme le paternel à la mode de l’ordinateur et des réseaux sociaux. Justement, il sort son portable pour vérifier l’adresse de Marie avant de lui rendre une visite imprévue. Tiens, un nouveau message !

@@ -1,5 +1,5 @@
 ---
-Auteur: NATALIA
+auteur: NATALIA
 ---
 
 Bas sur l'horizon, le soleil brille faiblement. Les mélèzes proches pointent leurs cimes enneigées vers le ciel bleu pâle. Lourdement vêtu — en Sibérie on préfère superposer les couches de vêtements, laine, cuir et fourrures, à l'ancienne — Tom prend avec lui le fusil debout à côté de la porte, déjà chargé, une boîte de cartouches entamée est posée à ses côtés. Les loups attaquent désormais en journée, mieux vaut être prudent. Il a déjà eu l'occasion de s'en servir, mais il préfèrerait éviter de réitérer son piètre exploit : cinq tirs, et pour tout carton un louveteau à peine sevré, sorti imprudemment de sa tanière sans sa fratrie. Katya en a pleuré. Porte refermée dans un grincement. La bise est glaciale. La nuit a été clémente, pas de congères à déblayer dans l'allée. Il marche droit devant lui, droit vers l'orée du bois.

@@ -1,5 +1,5 @@
 ---
-Auteur: hannef
+auteur: hannef
 ---
 
 Il a beau speeder, Axel est en retard. Ils vont encore râler au studio. Pourtant il a essayé de se débarrasser de ce repas de famille chez mamie Colette. Rien à faire. Il a ingurgité son gigot d’agneau du dimanche en un temps record mais cela n’a servi à rien. Vu l’ambiance, il a bien compris qu’il allait être obligé d’attendre le dessert.

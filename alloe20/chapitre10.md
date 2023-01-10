@@ -1,5 +1,5 @@
 ---
-Auteur: Mathieu
+auteur: Mathieu
 ---
 
 Home sweet home ! La journée n’a pas été simple, je suis contente d’être chez moi. L’idée que ma vieille maman est à l’hosto pour la semaine pour des bilans de santé, bizarrement, ça me soulage aussi. Je ne regrette toujours pas de m’être battue avec les frangins pour qu’on la mette pas dans un mouroir, mais quand même je dois avouer que ça représente un sacré poids…

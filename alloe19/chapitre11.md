@@ -1,3 +1,3 @@
 ---
-Auteur: B. Fontaine
+auteur: B. Fontaine
 ---

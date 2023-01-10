@@ -1,5 +1,5 @@
 ---
-Auteur: Michelessi
+auteur: Michelessi
 ---
 — Bonjour Papa
 — Bonjour Stéphane, entre.

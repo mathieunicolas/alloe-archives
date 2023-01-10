@@ -1,5 +1,5 @@
 ---
-Auteur: Sylvie
+auteur: Sylvie
 ---
 
 Alice trouvait bien pratique de vivre juste au-dessus de son arrêt de bus. Cela lui permettait de partir sans stress, au dernier moment, toujours au dernier moment… Mais parfois, comme aujourd’hui, elle savait avant même d’avoir atteint la rue qu’elle devrait attendre neuf minutes avant le prochain bus. Comme chaque matin, en passant le seuil, elle fixa la pharmacie jouxtant son immeuble et soupira. Elle ne vit pas l’homme qui se dressait sur son passage et le percuta, elle sentit son corps partir à la renverse et s’agrippa de toutes ses forces à ce qu’elle put pour ne pas tomber.

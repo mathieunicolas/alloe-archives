@@ -1,3 +1,3 @@
 ---
-Auteur: Marine P.
+auteur: Marine P.
 ---

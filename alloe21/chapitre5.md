@@ -1,5 +1,5 @@
 ---
-Auteur: Didier Moreau
+auteur: Didier Moreau
 ---
 
 Me voici donc lancé dans cette quête tel un aventurier, moi qui n’ai rien d’un aventurier. Mon père me reproche mon inaction et il estime que mes recherches dans les pages des journaux à la rubrique des faits divers pour retrouver l’arme redoutable sont inutiles. Il m’incite à interroger plutôt l’ordinateur estimant que les moyens modernes me fourniront peut-être des indices pour peu que je m’y attelle avec conviction.

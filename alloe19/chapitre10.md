@@ -1,3 +1,3 @@
 ---
-Auteur: Mathieu
+auteur: Mathieu
 ---

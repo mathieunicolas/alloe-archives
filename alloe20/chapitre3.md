@@ -1,5 +1,5 @@
 ---
-Auteur: Michelessi
+auteur: Michelessi
 ---
 
 — Allo Hélène ?

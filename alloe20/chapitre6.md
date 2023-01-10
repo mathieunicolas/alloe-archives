@@ -1,5 +1,5 @@
 ---
-Auteur: KIKI76
+auteur: KIKI76
 ---
 
 Tom est installé à sa table habituelle, il est un peu en retrait mais pas trop, juste ce qu’il faut pour être seul, tout en étant avec les autres clients. Ce petit bar de quartier, juste en bas de son nouvel appartement est devenu son QG, lorsqu’il a définitivement sorti ELLE de sa vie. Ce rituel avait marqué le commencement de son statut d’homme libre. Celle qui partageait son quotidien depuis si longtemps était maintenant ELLE. Jamais plus il ne prononcerait son prénom.

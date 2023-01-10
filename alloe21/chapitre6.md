@@ -1,5 +1,5 @@
 ---
-Auteur: Priam Demy
+auteur: Priam Demy
 ---
 
 Colette, bien sûr, est aux anges en les voyant arriver.

@@ -1,4 +1,5 @@
-Auteur: Bubphie
+---
+auteur: Bubphie
 ---
 
 Derrière ses grosses lunettes, Stéphane regarde pour la cinquième fois sa montre, 10h, bien trop tôt pour quitter le bureau, pourtant il le faudrait. Le 30 octobre et toujours aucune trace du couteau. Il a réussi à être discret cette année mais quelque chose lui dit qu’il prépare un sale coup. Tout son corps lui crie que cette année sera particulièrement sanglante. C’est bizarre de penser qu’un couteau peut préparer un sale coup mais c’est devenu son lot annuel.

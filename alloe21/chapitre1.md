@@ -1,5 +1,5 @@
 ---
-Auteur: Lou Pavilla
+auteur: Lou Pavilla
 ---
 
 *Ce n’est d’abord qu’un frisson métallique, un picotis diffus qui lui mordille le dos et la mitre. Un frémissement glacé qui le tire de son sommeil raide et gelé. Puis c’est un tressaillement irrépréssible qui l’ébranle, de la pointe au talon, et le tire tout à fait de son apathie.*

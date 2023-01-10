@@ -1,5 +1,5 @@
 ---
-Auteur: Christophe Oyra
+auteur: Christophe Oyra
 ---
 
 Se dirigeant vers la boulangerie près de chez elle, Marie marche d’un bon pas. C’est qu’elle voudrait être rentrée avant le réveil des goinfres qui lui servent d’enfants. En pleine adolescence, aussi bien Salomé, l’aînée, que Quentin et Camille, ses deux frères, ont en commun cette étrange particularité que l’on trouve souvent à cette période de la vie : un appétit féroce pour une totale absence d’énergie… Enfin, c’est surtout vrai pour Quentin, et aussi pour Salomé, même si elle fait plus attention à ce qu’elle mange ; car Camille, de son côté, ne semble s’être résolu à suivre leur exemple qu’à moitié : toujours à courir partout, elle a dû l’inscrire à une seconde activité sportive pour le canaliser. Fort heureusement, leur père, en dépit de ses défauts dans d’autres domaines, est quelqu’un de fiable lorsqu’il s’agit de verser la pension alimentaire. Sans ça, et malgré son ancienneté, elle aurait bien du mal à leur offrir une vie décente avec son seul salaire de comptable.

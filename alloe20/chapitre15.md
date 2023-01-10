@@ -1,5 +1,5 @@
 ---
-Auteur: Nicolas Brulant
+auteur: Nicolas Brulant
 ---
 
 J’ai le S.I.D.A., A.I.D.S. en anglais.

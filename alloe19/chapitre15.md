@@ -1,3 +1,3 @@
 ---
-Auteur: Nicolas Brulant
+auteur: Nicolas Brulant
 ---

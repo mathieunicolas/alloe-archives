@@ -1,6 +1,6 @@
 ---
 title: Trente-trois coups
-Auteur: Christine Bouillon
+auteur: Christine Bouillon
 ---
 
 Quel ennui, mais quel ennui ! Où est le temps où j'avais le couteau sous la gorge en permanence ?

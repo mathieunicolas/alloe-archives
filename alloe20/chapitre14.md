@@ -1,5 +1,5 @@
 ---
-Auteur: Sedrao
+auteur: Sedrao
 ---
 
 Tom était assis sur la table à manger, au milieu de la nuit. Il n’arrivait pas à trouver le sommeil depuis qu’il avait appris qu’il était séropositif. Ce fut un choc, quand son médecin le lui avait annoncé. Tout ça à cause de son ex-compagne.

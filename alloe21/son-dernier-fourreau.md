@@ -1,6 +1,6 @@
 ---
 title: Son Dernier Fourreau
-Auteur: Alice Ash
+auteur: Alice Ash
 ---
 
 Je n'ai ni nom ni âge. Encore moins de prix, car ma valeur n'a pas d'estimation humaine possible. Et pourtant c'est un homme qui m'a forgé, en des temps immémoriaux, un homme exceptionnel qui m'a doté d'un fil toujours parfait, mon corps de métal d'une pureté surnaturelle, ceint d'un manche de bois veiné... et de la conscience depuis laquelle je te parle en cet instant.

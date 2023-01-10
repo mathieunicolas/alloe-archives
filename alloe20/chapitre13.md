@@ -1,5 +1,5 @@
 ---
-Auteur: Lou Pavilla
+auteur: Lou Pavilla
 ---
 
 Marie prit résolument la pile de dossiers colorés qui occupait jusque-là une place de choix sur la table de la salle à manger et la déplaça sur le bureau de sa chambre. Elle s'était assez occupée des factures pour aujourd'hui, d'autant qu'elle devait se préparer à accueillir son invité. Et quel invité ! Cela faisait quelque temps qu'un homme ne l'avait pas autant intéressée. Elle traversa la maison avec cette espèce de distraction qui caractérisait les mamans ; sans y penser, elle ramassa une paire de chaussures qui traînait par terre et mit de l'ordre tandis que ses pensées vagabondaient. Divorcer l'avait libérée, mais elle ne s'était pas investie dans une autre relation. Après tout, elle avait ses trois ados, son travail, et elle s'en trouvait plutôt satisfaite.

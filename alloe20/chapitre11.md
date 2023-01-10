@@ -1,5 +1,5 @@
 ---
-Auteur: B. Fontaine
+auteur: B. Fontaine
 ---
 
 Samedi soir pour la première fois depuis son divorce, Marie s’ennuie, ce qui n’est pas du tout dans son caractère. Elle est dans sa cuisine, affalée, les deux coudes sur la table et elle s’étonne : “mais qu’est-ce qui m’arrive ?”, se demande-t-elle en se servant un autre verre de rosé.

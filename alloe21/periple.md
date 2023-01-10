@@ -1,6 +1,6 @@
 ---
 title: Périple
-Auteur: Bubphie
+auteur: Bubphie
 ---
 Le marteau s’écrase lourdement.
 

@@ -1,5 +1,5 @@
 ---
-Auteur: Alice Ash
+auteur: Alice Ash
 ---
 
 Ça fait seulement trois minutes qu'Axel attend le bus – ressenti quinze – quand enfin il le voit de loin. Ligne 11, rendez-vous à la MJC de Saint-Fouillard pour la répèt. Il y a encore beaucoup de détails à caler, le batteur n'est pas encore bien en place sur certains morceaux, il faut revoir quelques enchaînements d'accords, mais dans l'ensemble ça avance bien. Le bus s'arrête devant lui, la porte s'ouvre, il grimpe les deux marches et valide sa carte en lançant un bonjour distrait au chauffeur, perdu dans ses pensées artistiques. Ce dernier lui répond fort jovialement, ce qui est toujours appréciable quand on évolue quotidiennement dans une jungle urbaine souvent hostile.

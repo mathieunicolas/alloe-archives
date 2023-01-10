@@ -1,5 +1,5 @@
 ---
-Auteur: Judith Endrès
+auteur: Judith Endrès
 ---
 
 Quelle soirée ! Didier, et cette engueulade hier soir. D’où a-t-il sorti cette gifle ? Marie a mal dormi. Elle est encore en pétard ce matin quand elle sort de sa douche. En colère après lui, et après elle aussi. Elle a passé une nuit hachée. La tempête, l’engueulade. Elle a eu du mal à s’endormir. On ne frappe pas les enfants, ni personne d’ailleurs.
