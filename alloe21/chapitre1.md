@@ -12,8 +12,7 @@ Didier bâille à s’en décrocher la mâchoire, renversé sur le canapé, et c
 
 Marie s’étire, avant de lui répondre :
 
-— Je les ai envoyés chercher des pizzas.
-
+— Je les ai envoyés chercher des pizzas.  
 — Tom va encore nous ramener une pizza à l’ananas, maugrée Didier, amusé malgré son air bougon.
 
 — Au moins, nous serons prêts pour la nuit de l’horreur, relativise Marie, arborant elle aussi une moue renfrognée.
