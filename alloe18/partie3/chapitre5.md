@@ -1,3 +1,0 @@
----
-auteur: Judith Endrès
----
