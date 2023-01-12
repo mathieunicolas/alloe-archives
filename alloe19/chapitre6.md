@@ -1,5 +1,5 @@
 ---
-auteur: Michelessi
+auteur: R. Senelier
 ---
 
 

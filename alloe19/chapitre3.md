@@ -1,5 +1,5 @@
 ---
-auteur: Michelessi
+auteur: Lou Pavilla
 ---
 
 Complètement hagarde, Marie se frotte les yeux. Elle n'a même pas conscience qu'elle vacille. Sa chaussure ripe sur une bordure métallique et elle s'effondre, prise de vertiges. Sa cheville lui fait mal. Elle agite la main dans les airs, pour activer sa tech-lense, mais la lentille invisible, condensé minuscule de technologie, demeure inerte. 

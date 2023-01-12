@@ -1,5 +1,5 @@
 ---
-auteur: Michelessi
+auteur: Chloé
 ---
 
 Il y a des jours comme ça. Où on se lève, on pense faire sa petite vie tranquille et qu’on se couchera dans un monde qui sera toujours le même. Dans la même société. On regrettera les temps passés, où les interactions humaines avaient encore de la valeur. Mais voilà, l’humanité évolue et il faut suivre ce changement sous peine de se sentir rejeté. Hors du temps. Non intégré. Là est l’ironie. Tout ceci n’est que façade. L’intégration dans la société ne passe plus que par le virtuel. On s’affiche sur les réseaux sociaux, mais tout ce qui compte, ce sont les likes et les commentaires. Dans la rue, on a le nez sur son écran, que ce soit de téléphone ou de montre. Les objets sont devenus intelligents, remplaçant nos compatriotes. On se demande c’est quand la dernière fois que l’on a interagi en vrai avec un être humain sans y être obligé. Qu’on s’est promené sans écouteurs. Qu’on a laissé son téléphone ou sa montre à la maison. Qu’on a passé une journée sans regarder les réseaux sociaux. Et puis, on hausse les épaules. Qui sommes-nous pour pouvoir changer la société ? Mais ce jour-là, le monde allait basculer pour tous les êtres humains.

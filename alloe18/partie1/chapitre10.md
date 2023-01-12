@@ -1,5 +1,5 @@
 ---
-auteur: Mathieu
+auteur: Marine P.
 ---
 (rouages)
 

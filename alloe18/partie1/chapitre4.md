@@ -1,5 +1,5 @@
 ---
-auteur: Ju2
+auteur: Lina Soan
 ---
 (machine)
 Au-dehors, tout était calme. Il faisait noir comme dans un four : c’était une nuit sans lune. Kheira se demanda comment son village pouvait être si paisible alors que les jours de ses habitants semblaient comptés. Cet après-midi, les Arcanis avaient annulé la Récolte qui devait avoir lieu ce soir. Robert, le maire, les avait fait tous rassembler sur la place du village, au beau milieu des maisons de pierres aux toits de chaume. D’un air grave, il avait déclaré les festivités de la Grande Récolte annulées. Kheira n’en avait pas cru ses oreilles. Elle n’imaginait pas une nouvelle lune sans chants, danses, festins et offrandes. C’était la tradition depuis la création du village quelques générations plus tôt. Robert n’était pas passé par quatre chemins : la Machine était en panne, et tant qu’elle ne serait pas réparée, il n’y aurait pas de Récolte. D’ici là, il ordonnait à tous de rester chez soi, avec interdiction formelle de sortir et avec pour consigne de condamner toutes les issues jusqu’à nouvel ordre. Les villageois s’étaient tus et avaient obtempéré sans broncher.

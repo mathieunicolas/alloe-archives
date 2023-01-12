@@ -1,5 +1,5 @@
 ---
-auteur: Michelessi
+auteur: Selena Anguss
 ---
 
 Elle était seule, comme à son habitude. Effrayée, tremblante, assise sur le rebord de son lit froid et défait, la talon frappant le rythme de son anxiété. Le regard droit, face à rien, elle porte ses mains croisées contre son menton, à la façon d'une prière. Le mouvement éreintant de son genou fait s'entrechoquer sa mâchoire fermement tendue. Il y a une heure de ça, les volets de la fenêtre qui lui fait face se sont ouverts automatiquement, accompagnés de leur son mécanique à peine audible, mais déjà si bruyant dans cette chambre où rien ne résonne. La pièce s’éclairait progressivement au rythme des ampoules LEDs qui se coordonnaient à la lumière naissante du jour pour offrir un réveil naturel; Il n’y avait pas eu de réveil, bien entendu, mais cela, tout intelligent que ce système était, il ne le savait pas.

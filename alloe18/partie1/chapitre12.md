@@ -1,5 +1,5 @@
 ---
-auteur: Marine P.
+auteur: Philippe Auffret
 ---
 (tonneaux)
 

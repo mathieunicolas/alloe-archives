@@ -1,3 +1,7 @@
+---
+auteur: Macolie
+---
+
 Lundi 24 octobre 2050 
 
 Le procès de Charles J. et son appareil, le *TransDreamer*, va débuter dans quelques instants. Il y a une foule rarement vue dans un tribunal. L’ambiance est agitée, bruyante. L’accusé, les témoins ainsi que l’avocate de la défense s’installent au centre de la pièce. Des journalistes et vendeurs de rêves (les successeurs des influenceurs du début du siècle), venus par centaines du monde entier, s’installent tout autour, tel un essaim, pour ne manquer aucune seconde de cet instant historique. Pour les aider dans cette tâche, ils sont tous pourvus de lunettes avec caméra et micro intégrés ainsi que de la dernière génération de smartphones. Au milieu de ce brouhaha, le juge T. ne passe pas inaperçu avec sa tenue métallique qui brille de mille feux. Il semble néanmoins absent, le nez plongé dans ses nombreux appareils. Ses chaussures GPS finissent par le guider jusqu’à son trône où il s’y installe fort bruyamment, ne manquant pas de bien faire traîner sa chaise, ce qui semble faire taire un peu tout ce monde. Trois coups de marteau, la séance commence, l’assemblée se tait. 

@@ -1,5 +1,5 @@
 ---
-auteur: hannef
+auteur: Marie-Paule Bonnart alias Harnou
 ---
 (tonneaux)
 Dans un autre village, au même moment, l’ambiance est toute autre.

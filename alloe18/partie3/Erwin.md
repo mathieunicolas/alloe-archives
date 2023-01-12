@@ -1,3 +1,6 @@
+---
+auteur: Philippe Auffret
+---
 En Hiver. L’après-midi touche à sa fin.
 
 Erwin est sur une route de terre battue qui traverse une forêt dense et a priori hostile, surtout en cette saison. La route est également peu sûre, car elle est largement empruntée pour se rendre à la ville et les voyageurs sont souvent la cible de personnes mal intentionnées.

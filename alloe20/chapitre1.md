@@ -1,10 +1,6 @@
 ---
-
 auteur: NATALIA
-
 ---
-
-
 
 Rue de la Regratterie, Médiathèque François-Mitterrand, Place du 11 novembre. Les tilleuls sont en fleurs, la saison ne colle pas avec la date de l'armistice. Deux des trois terrasses sont fermées, la ville est si peu touristique que les cafetiers ferment l'été. C'est peu dire, donc tout, sur ce coin de Province. Une enseigne qu'il ne connait pas lui fait face, le bar-tabac s'appelait "Chez Marcel" à l'époque, maintenant c'est "Le Yéti". Prénom du nouveau propriétaire ?
 

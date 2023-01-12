@@ -1,5 +1,5 @@
 ---
-auteur: Michelessi
+auteur: Sylvie Vidal
 ---
 
 * Watashi no uso !

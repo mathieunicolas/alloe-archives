@@ -2,8 +2,6 @@
 auteur: Marine P.
 ---
 
-
-
 Comme tous les matins depuis que ça t’est tombé dessus, tu es devant ton miroir, prostré. Comment tu as pu être aussi bête ? Si jamais tu avais pris plus de précautions, si ta satanée ex avait fait le test plus tôt et si Anne ne t’avait pas mis un râteau ce lundi à l'agence, tu ne l’aurais pas rencontrée cette contaminatrice. Arrête de chercher un coupable, tu es ridicule. Vous étiez deux dans ce couple, le test tu ne l’avais pas fait non plus. Tu penses à quand il faudra l’annoncer à ta mère. Elle va te flinguer. Elle qui a dévoué son temps au Sidaction et voilà que son gamin a le VIH. Quelle ironie.
 
 Tu en pleures d’amertume. Inlassablement te reviennent en tête les visages de victimes du sida que tu as pu voir à la télé pendant ton enfance. Tu sais que depuis la médecine a progressé mais malgré tout tu as peur. Peur de finir comme ces visages, peur de mourir trop tôt.

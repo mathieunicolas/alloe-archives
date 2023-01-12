@@ -1,5 +1,5 @@
 ---
-auteur: Nicolas Brulant
+auteur: Mathieu
 ---
 (rouages)
 

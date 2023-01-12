@@ -1,5 +1,5 @@
 ---
-auteur: Sedrao
+auteur: Daniel Marleau
 ---
 (pommier)
 

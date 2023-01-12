@@ -1,3 +1,6 @@
+---
+auteur: Gaelle Kermen
+---
 Il était temps de s’arrêter, de faire un camp pour se réchauffer et dormir. Erwin était fatigué, à bout de forces. Le lendemain, son maître l’attendait à quatre heures de marche, il était trop tard en cette fin de journée d’hiver pour accomplir ce trajet, la nuit allait bientôt tomber. Mais il voulait atteindre le sommet avant de ne plus voir où il posait ses pas.
 
 Le matin de bonne heure, Erwin était sorti de la ville fortifiée par la barbacane Ouest, pour se diriger vers la rivière au fond de la vallée sombre, puis monter sur la montagne affronter son destin.

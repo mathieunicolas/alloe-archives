@@ -1,5 +1,5 @@
 ---
-auteur: Michelessi
+auteur: Sylvie Vidal
 ---
 
 L’hydravion était en approche d’Amphitrite. Le voyage avait été long et fastidieux, parsemé de tempêtes orageuses. Victor Einsenberg , gouverneur de l’île Amphitrite, se sentait très fatigué. Son corps entier accusait le coup d’un tel voyage.  Il aurait bien préféré prendre une navette sous-marine supersonique, mais c’était un cadeau d’anniversaire des autres Sages du corpuscule.

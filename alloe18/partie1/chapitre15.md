@@ -1,5 +1,5 @@
 ---
-auteur: Nicolas Brulant
+auteur: Gaelle Kermen
 title: l'Insoumise
 ---
 (pommier)

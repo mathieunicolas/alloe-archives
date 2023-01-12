@@ -1,5 +1,5 @@
 ---
-auteur: Lou Pavilla
+auteur: Héloïse Abellan
 ---
 (rouages)
 

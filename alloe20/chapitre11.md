@@ -2,8 +2,6 @@
 auteur: B. Fontaine
 ---
 
-
-
 Samedi soir pour la première fois depuis son divorce, Marie s’ennuie, ce qui n’est pas du tout dans son caractère. Elle est dans sa cuisine, affalée, les deux coudes sur la table et elle s’étonne : “mais qu’est-ce qui m’arrive ?”, se demande-t-elle en se servant un autre verre de rosé.
 
 En effet, séparée de son mari, elle a organisé tant dans la vie professionnelle que privée une manière de vivre qui lui convient parfaitement. Avec ses trois ados, elle partage beaucoup de bons moments et des fous rires, bien sûr il y a des accrochages, ce qui est bien normal. Pourquoi ce soir, ce coup de cafard ? Le départ précipité de son plus grand lui a sans doute fait prendre conscience un peu brutalement de sa solitude. Il a préféré sortir plutôt que de manger avec elle les lasagnes préparées avec tant de soin. Tous les trois feront leur vie, partiront du foyer, iront s’installer ailleurs. Tout à coup, la maison est trop silencieuse. Le téléphone la fait sursauter.

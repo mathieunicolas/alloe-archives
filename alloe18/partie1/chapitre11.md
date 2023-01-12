@@ -1,5 +1,5 @@
 ---
-auteur: B. Fontaine
+auteur: Julie
 ---
 (machine)
 

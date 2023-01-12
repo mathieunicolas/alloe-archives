@@ -1,3 +1,7 @@
+---
+auteur: Lou Pavilla
+---
+
 Erwin s’ébroua, glacé par la pluie, et glissa hors du taillis humide où il s’était tapi. Ses vêtements étaient imbibés d’eau croupie, lourds de boue et c’était à peine s’il sentait encore ses orteils dans ses bottes trop serrées. Mais il devait poursuivre sa route, malgré les nuages qui menaçaient au loin. Si cela n’avait été que cela...
 
 Les routes n’étaient jamais sûres, encore moins en hiver où les plus pauvres et les plus immoraux se mettaient en tête d’écumer les chemins dans l’espoir de trouver une proie facile à détrousser et Erwin en était une parfaite, surtout après l’incident récent.

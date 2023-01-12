@@ -1,5 +1,5 @@
 ---
-auteur: Michelessi
+auteur: Christophe Oyra
 ---
 
 Viviane se penche sur la table et attrape un toast. Ils ont beau être végétariens pour s’assurer que tout le monde puisse en manger, ça ne les empêche pas d’être bien trop gras... Elle sait qu’elle ne devrait pas en reprendre si elle veut garder la ligne, mais ce n’est pas tous les jours que l’on fête l’aboutissement de plusieurs années de travail ! Elle jette un regard circulaire autour d’elle. Tous ses collègues sont là, une flûte de champagne ou de pétillant à la main, un smartphone dans l’autre.

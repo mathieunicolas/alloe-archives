@@ -1,5 +1,5 @@
 ---
-auteur: Judith Endrès
+auteur: Alex N.R
 ---
 (rouages)
 --- Je ne m’attendais pas à ça venant de toi Kheira. Tu devrais le savoir mieux que personne qu’il est interdit de s’approcher de la machine... à force de brûler les étapes, tu risques de tout perdre. Je sais que ce n’est pas ce que tu souhaites. N’est-ce pas ? Kheira ? Bon... si tu le prends de cette manière...

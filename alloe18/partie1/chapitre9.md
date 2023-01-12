@@ -1,5 +1,5 @@
 ---
-auteur: Christophe Oyra
+auteur: Lise Audoin
 ---
 (reparation)
 
