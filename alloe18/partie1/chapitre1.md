@@ -3,6 +3,7 @@ auteur: Michelessi
 ---
 (réparation)
 ![image](../machine.png)
+
 --- KHEIRA !
 
 --- Hein ? Pourquoi criez-vous comme ça, mon oncle ? Vous m’avez fait peur ! J’ai failli faire tomber la pièce maîtresse de mon mécanisme.
