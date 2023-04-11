@@ -12,7 +12,7 @@ Sans son smartphone, elle n'existe plus pour le système. Aucun signal d'alarme 
 
 Tremblante, elle se redresse, tandis que le flot ininterrompu de piétons l'évite à peine, et passe une main nerveuse sur ses vêtements. Par chance, elle est indemne, et sa smartwatch est intacte. Victime d'un soudain accès de fébrilité, elle porte la main à son oreille. Sous la pulpe de ses doigts, elle devine les contours discrets de son oreillette, dont le design épouse parfaitement la forme et la couleur de sa peau. Elle a toujours son assistant. Elle parvient à pousser une expiration tremblante, mais l'angoisse la saisit de nouveau, enserrant sa gorge comme pour l'étouffer. 
 
---- IA ? Appelle-t-elle en se massant la cheville. IA ? 
+-- IA ? Appelle-t-elle en se massant la cheville. IA ? 
 
 Mais aucune voix synthétique ne lui répond. Elle aurait pu lui demander de lancer une analyse des périphériques... 
 
@@ -30,11 +30,11 @@ Elle respire un peu mieux maintenant. Elle aura un smartphone de rechange sous p
 
 Marie pose la main sur le comptoir tactile, et aussitôt, une voix synthétique résonne à l'intérieur de son oreille. Impossible de dire si elle a été programmée pour ressembler à celle d'un homme ou d'une femme. Elle paraît tellement froide, impersonnelle par rapport à celle d'IA, si chaude et envoûtante. 
 
---- *Bonjour, Civis. Conformément au code des gardiens de l'ordre, un formulaire va vous être proposé. Veillez à remplir la majorité des champs afin de préciser la prise en charge dont vous avez besoin.* 
+-- *Bonjour, Civis. Conformément au code des gardiens de l'ordre, un formulaire va vous être proposé. Veillez à remplir la majorité des champs afin de préciser la prise en charge dont vous avez besoin.* 
 
 La voix s'éteint, et plusieurs menus s'affichent autour de ses doigts écartés. Marie coche les options qui la concernent, tape rapidement sur le clavier virtuel ses numéros d'identification. 
 
---- *Votre dossier vient d'être créé. Patientez, un agent va venir vous aider.* 
+-- *Votre dossier vient d'être créé. Patientez, un agent va venir vous aider.* 
 
 Marie recule d'un pas et entreprend de se ronger les ongles. Ses dents mordillent les peaux mortes tandis qu'elle se balance d'un pied sur l'autre. 
 
@@ -42,7 +42,7 @@ Elle remarque alors les autres personnes qui patientent dans la salle. La plupar
 
 Ils ont tous l'air absent dans cette salle... sauf un homme, renfoncé dans son siège. Son regard acéré examine l'assistance, comme animé par la folie, au lieu d'absorber un flot d'informations numériques. 
 
---- Quelle impolitesse, murmure Marie. 
+-- Quelle impolitesse, murmure Marie. 
 
 Elle se retourne vers le comptoir. Les officiers n'ont pas bougé. Assis dans leurs fauteuils ergonomiques, les yeux dans le vague, ils n'ont pas l'air de se préoccuper de la jeune femme. 
 
@@ -52,34 +52,34 @@ La gorge nouée par l'urgence, elle serre le poing et toque sur le présentoir. 
 
 attitude commence à attirer l'attention, alors elle s'efforce de se discipliner. Elle prend une profonde inspiration et effleure à nouveau la surface intelligente. 
 
---- *Bonjour, mademoiselle Marie* , fait la voix informatique. *Votre dossier est en cours de traitement, un agent va venir. Si vous souhaitez soumettre une autre requête, veuillez remplir l'onglet "demande de formulaire."* 
+-- *Bonjour, mademoiselle Marie* , fait la voix informatique. *Votre dossier est en cours de traitement, un agent va venir. Si vous souhaitez soumettre une autre requête, veuillez remplir l'onglet "demande de formulaire."* 
 
---- Un agent va venir, marmonne Marie. D'accord. Mais quand ? 
+-- Un agent va venir, marmonne Marie. D'accord. Mais quand ? 
 
 Aucun des officiers ne réagit, comme s'ils ne l'avaient pas entendu. C'est probablement le cas d'ailleurs. Elle aperçoit dans un reflet la retransmission d'un concert que visionne l'un des gardiens de l'ordre. 
 
 L'estomac de Marie se noue de nouveau. Son coeur s'affole. Elle a besoin de son smartphone. Maintenant. Elle en a des frissons. Elle veut avaler sa salive, mais sa gorge est trop serrée. Elle tire sur son col, mais elle a toujours l'impression d'étouffer. 
 
---- Excusez moi, lance la jeune femme en toquant de nouveau sur le présentoir. S'il vous plaît ? 
+-- Excusez moi, lance la jeune femme en toquant de nouveau sur le présentoir. S'il vous plaît ? 
 
 Il n'y a que le silence pour lui répondre. Elle guette un signe, une réaction, mais toujours rien. Sa jambe tressaute sur le sol. Ses mains quittent sa gorge, se mettent à gratter frénétiquement son buste. Marie croise son reflet. Les yeux écarquillés, les doigts recourbés comme des serres... on dirait qu'elle veut s'arracher ses vêtements, sa peau... ses mains rampent, pareilles à des araignées, et agrippent de pleines poignées de cheveux sombres. Elle ne sent pas la douleur. Juste la nervosité. 
 
---- Ex... excusez moi ? Tente t-elle de nouveau.  
-Mais sa voix s'est faite grondement. Elle s'arrache les cheveux, du sang colore ses ongles. --- Pourquoi m'ignorez vous ?  
+-- Ex... excusez moi ? Tente t-elle de nouveau.  
+Mais sa voix s'est faite grondement. Elle s'arrache les cheveux, du sang colore ses ongles. -- Pourquoi m'ignorez vous ?  
 Elle prend leur indifférence avec la même violence qu'une gifle. Et elle ne peut plus se retenir. Il lui faut un smartphone. Maintenant. Maintenant. 
 
 *Maintenant !!* 
 
 Comme possédée, elle hurle et passe par dessus le comptoir, envoyant valser les arrangements du bureau encastré derrière et se rue vers les officiers. Les mains tendues, elle tente d'attraper l'un de leur smartphone mais se heurte à des bulles invisibles de protection. Elle a beau taper contre les parois, ils ne la remarque même pas. Son angoisse et sa colère s'en trouvent redoublées. 
 
---- Un smartphone ! Mugit-elle en tirant sur ses cheveux. Donnez moi... donnez moi en un ! 
+-- Un smartphone ! Mugit-elle en tirant sur ses cheveux. Donnez moi... donnez moi en un ! 
 
 Elle se cogne contre les meubles, bavant comme un animal enragé. Elle ne peut plus se voir, mais, ramassée sur elle même, les dents découvertes, elle fait figure de bête sauvage. Elle erre entre les bureaux, jette au loin les tiroirs vides dans une manifestation évidente de frustration. Pourquoi n'y a-t-il pas de smartphone ? Il lui en faut un ! 
 
 Elle erre, courant dans tous les sens en hurlant, et finit par se dire qu'il doit y avoir, quelque part, une salle de stockage. 
 
 Il lui faut un smartphone. Tout de suite !  
---- Où sont-ils ?! Halète la jeune femme. Dites moi... dites moi où sont ils !  
+-- Où sont-ils ?! Halète la jeune femme. Dites moi... dites moi où sont ils !  
 Mais personne ne lui répond. Elle tape contre les murs, s'écorche sur les serrures. Son 
 
 agitation lui vaut plusieurs coups d'oeil de la part de l'assistance. Certains lèvent même leurs 
@@ -89,11 +89,11 @@ smartphone pour la filmer. Folle de rage, Marie fait demi tour. Ils ont des smar
 Glissant sur le carrelage, elle bouscule l'un des postes d'urgences. Une lumière rouge se met à clignoter. Une sirène crie. Cette fois, les officiers sont bien forcés de la remarquer. Mais c'est déjà trop tard. Leste comme un chat, elle se faufile entre les bras qui se tendent pour l'attraper et escalade à nouveau le comptoir derrière lequel la foule se masse. 
 
 Telle une furie, Marie fond sur le jeune homme le plus proche et le plaque au sol.  
---- Donne le moi ! Exige-t-elle en tentant de lui arracher son smartphone. Donne le moi !! Ses ongles, bien que courts, erraflent le visage de sa malheureuse victime. Elle s'acharne. 
+-- Donne le moi ! Exige-t-elle en tentant de lui arracher son smartphone. Donne le moi !! Ses ongles, bien que courts, erraflent le visage de sa malheureuse victime. Elle s'acharne. 
 
 Le jeune homme tend une main pour se protéger mais Marie l'attrape entre ses dents en grognant. Elle le mord, si fort que du sang dégouline sur son bras. Le pauvre garçon fond en larme, tandis qu'elle le relâche pour crier : 
 
---- Donne le moi !! Exige-t-elle en bavant un mélange de salive et de sang. Il est à moi !! 
+-- Donne le moi !! Exige-t-elle en bavant un mélange de salive et de sang. Il est à moi !! 
 
 Deux officiers l'empoignent, et la force à lâcher le jeune homme. Marie se tord, hystérique, donne des coups de pieds à l'aveugle. 
 
@@ -101,7 +101,7 @@ Elle hurle tandis que les gardiens la maintiennent de leur mieux. Mais la terreu
 
 Mais qu'importe. Elle a besoin d'un smartphone. 
 
---- Donnez le moi ! Beugle-t-elle en fonçant vers les officiers. Donnez le moi ! J'y ai droit ! 
+-- Donnez le moi ! Beugle-t-elle en fonçant vers les officiers. Donnez le moi ! J'y ai droit ! 
 
 Les gardiens la dévisagent, comme si ils ne comprenaient pas l'agitation qui l'animent. Puis elle remarque l'homme étrange, juste derrière les officiers. Il a quelque chose... de magnétique, qui déstabilise Marie. Pendant un bref instant, elle ne sait plus ce qu'il se passe, ce qu'elle fait. 
 
@@ -109,76 +109,76 @@ Comme ces anciens enfants qui serraient leur peluche, Marie se palpe, cherchant 
 
 Elle éclate soudain en sanglot, se sentant terriblement incomprise et se recroqueville sur elle-même. Elle entend les rires, les exclamations scandalisées des gens qui commentent son attitude. Mais personne ne vient. Personne ne lui apporte son smartphone. 
 
---- Mais pourquoi ne me le donnez vous pas ? Se lamente-t-elle. J'en ai besoin... 
+-- Mais pourquoi ne me le donnez vous pas ? Se lamente-t-elle. J'en ai besoin... 
 
 Aveuglée par les smartphones et les larmes, elle s'aperçoit tout de même que les gardiens la jaugent. Ils n'ont pas l'air de vouloir accéder à ses souhaits. Même eux l'ont abandonnée. 
 
---- C'est la loi, gémit Marie en essuyant ses yeux. S'il vous plaît...  
+-- C'est la loi, gémit Marie en essuyant ses yeux. S'il vous plaît...  
 Mais personne ne vient. Pourquoi ?  
---- Pourquoi ne m'aidez vous pas ? Pourquoi me regardez vous ?  
+-- Pourquoi ne m'aidez vous pas ? Pourquoi me regardez vous ?  
 Elle tente de faire un pas, et remarque alors qu'elle a perdu l'une de ses chaussures. Ses pleurs redoublent. Elle ne sait même pas pourquoi elle leur parle. Personne n'aide jamais, c'est ainsi que les choses fonctionnent. Mais elle voudrait tellement... que quelqu'un vienne. Lui prenne la main. Promette que tout ira bien. 
 
---- J'ai besoin d'aide... vous *devez* m'aidez... Même IA m'aurait aidé. Et IA est une intelligence artificielle ! 
+-- J'ai besoin d'aide... vous *devez* m'aidez... Même IA m'aurait aidé. Et IA est une intelligence artificielle ! 
 
 Elle commence à avoir mal à la tête. Les flashs lui brûlent les yeux. Ils la filment, l'observent, l'étudient, ils sont dans la même pièce qu'elle mais, derrière leur écrans, ils pourraient tout aussi bien être à des kilomètres. D'une certaine façon, ils le sont. Et elle trouve cela insupportable. Immoral. Ne sont-ils pas humains comme elle ? Ne ressentent-ils pas la même angoisse une fois séparés de leur smartphone ? 
 
---- Arrêtez ! Crie-t-elle. Pourquoi me filmez vous ? Au lieu de m'aider ? 
+-- Arrêtez ! Crie-t-elle. Pourquoi me filmez vous ? Au lieu de m'aider ? 
 
 Dans un dernier geste de colère, elle tente de chasser les importuns, mais sa mauvaise cheville la trahit. Elle trébuche et tombe. Emplie de détresse, elle se roule en boule et couvre ses yeux avec ses mains. Elle ne veut plus rien voir, plus rien entendre. Elle veut juste un smartphone et la voix rauque d'IA dans son oreille. Le goût du sang sur sa langue lui donne envie de vomir. 
 
---- C'est la première fois que je vois quelqu'un faire une crise, s'exclame une voix jeune, enjouée. 
+-- C'est la première fois que je vois quelqu'un faire une crise, s'exclame une voix jeune, enjouée. 
 
 Piquée au vif, Marie relève la tête. Qui est l'imbécile qui... 
 
---- C'est assez, mademoiselle, intervient une voix d'homme, que Marie trouve inexplicablement sensuelle. 
+-- C'est assez, mademoiselle, intervient une voix d'homme, que Marie trouve inexplicablement sensuelle. 
 
 La jeune femme se calme alors, et passe le doigt sur son oreillette.  
---- IA ?  
---- On va vous apporter un smartphone.  
+-- IA ?  
+-- On va vous apporter un smartphone.  
 Marie fronce les sourcils. Ce n'est pas IA... mais l'homme dérangé qui étudiait l'assistance plus tôt. Il s'agenouille à côté d'elle et écarte les cheveux bruns qui se sont collés sur sa joue, poissés par le sang. Marie écarquille les yeux, surprise de cette grande main chaude, sèche, contre sa peau à elle. L'inconnu a un geste très surprenant, encore plus que son attention vis à vis d'elle. Il sort un carré de tissus de sa poche et lui tapote délicatement la bouche. Elle ne sent même pas la douleur. Partagée entre fascination et répulsion pour l'espèce de fou qui prend soin d'elle, Marie s'assoit maladroitement face à lui, l'esprit vide. Il lui faut un smartphone. 
 
 Elle contemple l'inconnu sans le voir. Que faut-il faire dans ce genre de situation ? Le comportement de l'homme est étrange, perturbant. Est-ce un criminel ? Un fou ? Mais que ferait-il ici ? Encore déboussolée, ses mains cherchant le contact familier de son smartphone, la jeune femme tente de se souvenir des forums. Le sentiment qu'elle est censée éprouver, c'est de la reconnaissance, de la gratitude. Sauf qu'elle ne peut se départir de sa nervosité. Elle a besoin de son smartphone. C'est à peine si elle se souvient des règles de politesse. 
 
 Mais avant qu'elle puisse songer à le remercier, deux paires de mains la soulèvent. Elle se retrouve assise à un bureau, sans savoir pourquoi ni comment, en face d'un officier de l'ordre. Il ne la regarde pas, tandis qu'il déballe un paquetage familier, et sa voix est monotone, à peine plus humaine que celle de l'assistant d'accueil : 
 
---- Conformément au décret sur la détresse technologique, voici un nouveau smartphone. 
+-- Conformément au décret sur la détresse technologique, voici un nouveau smartphone. 
 
 Elle rafle le smartphone dans les mains tendues du gardien et le serre contre sa poitrine. Il lui semble bien qu'un poids vient de s'envoler de ses épaules. Elle s'autorise à respirer plus librement, la tension de ses nerfs se relâchant d'un seul coup. 
 
 Elle pousse un soupir béat. Tout va bien. Elle a un smartphone. 
 
---- En dédommagement de notre... bavure, votre nouveau modèle sera offert et disponible sous peu. Pour le moment, votre modèle de rechange a été activé. Vous ne serez pas poursuivie pour ce qu'il s'est passé dans la salle d'attente. 
+-- En dédommagement de notre... bavure, votre nouveau modèle sera offert et disponible sous peu. Pour le moment, votre modèle de rechange a été activé. Vous ne serez pas poursuivie pour ce qu'il s'est passé dans la salle d'attente. 
 
 Marie passe son pouce sur l'écran qui s'allume aussitôt. Elle récupère sa sauvegarde en ligne et effectue un rapide paramétrage. 
 
---- Veuillez apposer votre pouce au bas du formulaire, mademoiselle. 
+-- Veuillez apposer votre pouce au bas du formulaire, mademoiselle. 
 
 Marie obtempère sans y penser, ses yeux parcourent déjà les nombreux fils d'actualité. Quelques *hashtags* parlent même de sa petite crise. Des politiques s'emparent de l'affaire. 
 
---- IA ?  
---- *Oui, Marie ? Qu'est ce que je peux faire pour toi ?*  
+-- IA ?  
+-- *Oui, Marie ? Qu'est ce que je peux faire pour toi ?*  
 La jeune femme se penche, pour mieux entendre la voix désincarnée. Les accents 
 
-rauques, chaleureux, de la voix informatisée achèvent son retour au calme. --- Commande moi un taxi, je veux rentrer.  
---- *Dois-je l'envoyer à tes coordonnées ?*  
---- S'il te plaît. 
+rauques, chaleureux, de la voix informatisée achèvent son retour au calme. -- Commande moi un taxi, je veux rentrer.  
+-- *Dois-je l'envoyer à tes coordonnées ?*  
+-- S'il te plaît. 
 
 Elle entend un bourdonnement distant.  
---- *C'est fait, il devrait être là d'ici quelques instants.*  
---- Merci IA.  
---- *Tout le plaisir est pour moi.*  
+-- *C'est fait, il devrait être là d'ici quelques instants.*  
+-- Merci IA.  
+-- *Tout le plaisir est pour moi.*  
 Sans plus considérer les alentours, Marie se lève, et quitte le bureau. Les yeux fixés sur son smartphone, elle étudie les tendances, sans se préoccuper des notifications. Son corps bouge par automatisme, ses pieds la ramènent à la salle d'attente. Elle a retrouvé sa chaussure, elle ne sait pas comment. 
 
---- IA ? Commande moi à manger.  
---- *Tes friandises habituelles ? Marie, tu sais ce qu'en pensent les réparateurs...* Marie ne relève pas tout de suite. Avec l'avènement des nouvelles technologies, les réparateurs ont ouvert boutique un peu partout. À force de faire l'analogie entre le médecin, chargé du bien être des hommes et les réparateurs, prenant soin des smartphones... Déjà à sa naissance, le mot "médecin" a commencé à disparaître. 
+-- IA ? Commande moi à manger.  
+-- *Tes friandises habituelles ? Marie, tu sais ce qu'en pensent les réparateurs...* Marie ne relève pas tout de suite. Avec l'avènement des nouvelles technologies, les réparateurs ont ouvert boutique un peu partout. À force de faire l'analogie entre le médecin, chargé du bien être des hommes et les réparateurs, prenant soin des smartphones... Déjà à sa naissance, le mot "médecin" a commencé à disparaître. 
 
---- Je t'en prie, soupire la jeune femme. 
+-- Je t'en prie, soupire la jeune femme. 
 
---- *D'accord*, consent la voix dans l'oreillette . *Mais pas trop. Je ne voudrais surtout pas que tu tombe malade.* 
+-- *D'accord*, consent la voix dans l'oreillette . *Mais pas trop. Je ne voudrais surtout pas que tu tombe malade.* 
 
 Quelque chose la frôle, mais elle n'y prend pas garde, bercée par les échos de la voix numérique. 
 
---- Ainsi, mademoiselle... quelqu'un aurait *dû* vous aider... 
+-- Ainsi, mademoiselle... quelqu'un aurait *dû* vous aider... 
 
 Elle sursaute vivement, effrayée par cette bouche qu'elle a senti s'agiter tout près de son oreille. C'est le gentil inconnu qui l'observe avec un fin sourire. Il se tient devant elle, si près qu'elle pourrait le toucher. 
 
@@ -190,66 +190,66 @@ Et ce n'est pas tout. S'il lui a semblé sympathique, ce n'est plus trop le cas 
 
 Pourquoi il parler ? Qu'a t-elle fait ? Elle ne s'est rendue coupable de rien... elle se ronge nerveusement les ongles, rendant à l'inconnu son regard scrutateur. 
 
---- Qui êtes vous ? Que voulez vous ? 
+-- Qui êtes vous ? Que voulez vous ? 
 
 Elle se sent mal. Elle n'aime pas cet inconnu. Elle n'aime pas cette situation. Elle a envie de fuir à toutes jambes. Se réfugier dans le coin d'une pièce. Demander à IA de compter de trois en trois, juste pour le réconfort d'entendre sa voix. Et cet homme l'en empêche. 
 
---- Répondez à ma question.  
+-- Répondez à ma question.  
 Cet homme est un obstacle.  
---- *Ton chauffeur est arrivé, Marie* .  
---- Appliquez donc vos propres conseils, crie la jeune femme, dans un soudain accès de fébrilité.  
+-- *Ton chauffeur est arrivé, Marie* .  
+-- Appliquez donc vos propres conseils, crie la jeune femme, dans un soudain accès de fébrilité.  
 Son éclat de voix surprend. L'homme hausse un sourcil, mais se contente de sortir une paire de lunette qu'il juche sur son nez droit. Cette prothèse désuète déstabilise Marie. Pourquoi ne s'est-il pas fait opérer, au lieu de porter ces antiquités ? 
 
 Mais pourquoi ne regarde-t-il pas son smartphone ? Pourquoi ne passe t-il pas son chemin ? 
 
---- Leur attitude vous a perturbé.  
---- Oui. C'est bien normal, non ? Personne ne m'a aidé alors que... alors que...  
+-- Leur attitude vous a perturbé.  
+-- Oui. C'est bien normal, non ? Personne ne m'a aidé alors que... alors que...  
 Elle recommence à haleter et pour se calmer, caresse la tranche de son smartphone. Tout 
 
 va bien. Elle a un smartphone. Elle est connectée. Elle a IA avec elle.  
---- Ils m'ont filmé, alors que j'étais... en pleine détresse. Les officiers... j'ai soumis une demande urgente et ils ne se sont pas occupé de moi. Alors que nous savons tous ce qui peut se passer... 
+-- Ils m'ont filmé, alors que j'étais... en pleine détresse. Les officiers... j'ai soumis une demande urgente et ils ne se sont pas occupé de moi. Alors que nous savons tous ce qui peut se passer... 
 
---- Je sais, mademoiselle. Et j'en suis désolé. 
+-- Je sais, mademoiselle. Et j'en suis désolé. 
 
 Marie fronce le nez. Il est... *désolé* ? Mais qui est cet énergumène ? Il a l'air si franc... comme si son état de santé le préoccupait réellement. 
 
---- Vous permettez ? 
+-- Vous permettez ? 
 
 Il agite son mouchoir tâché et, comme Marie ne se dérobe pas, il achève d'essuyer le sang qui lui macule la figure. Marie se laisse aller, les larmes aux yeux. Cet homme est si... *gentil* , si *chaleureux* . Elle sent ses mains sur ses joues, si grandes par rapport aux siennes. Il lui semble soudain qu'elle n'a jamais reçu une telle tendresse, même de la part de ses parents. Il est plus vieux qu'elle mais quelque chose dans son attitude lui donne une espèce de jeunesse intemporelle. 
 
---- *Marie ? Est-ce que tout va bien ? Ton chauffeur t'attend*. 
+-- *Marie ? Est-ce que tout va bien ? Ton chauffeur t'attend*. 
 
 L'homme semble soudain perdre en assurance, ce qui ne rassure pas Marie. Qu'est ce qui pourrait le déstabiliser ? 
 
---- Mademoiselle, je ne me permettrai pas de vous importuner, mais laissez moi m'expliquer. Je... je m'appelle Charles. Je travaille dans le milieu des neurosciences et... et votre réaction... votre... enfin, c'était tout bonnement merveilleux. 
+-- Mademoiselle, je ne me permettrai pas de vous importuner, mais laissez moi m'expliquer. Je... je m'appelle Charles. Je travaille dans le milieu des neurosciences et... et votre réaction... votre... enfin, c'était tout bonnement merveilleux. 
 
 Marie a un mouvement de recul. Un scientifique. Ce n'était pas de la gentillesse. Il essaie simplement de se servir d'elle. 
 
---- Je... je travaille sur une machine et... j'aurais besoin de quelqu'un comme vous pour... --- Non.  
+-- Je... je travaille sur une machine et... j'aurais besoin de quelqu'un comme vous pour... -- Non.  
 Le refus, net, est sortit avant même qu'elle n'y réfléchisse.  
---- Je... je ne peux pas travailler. Je... fais des crises, marmonne Marie à toute vitesse. Je ne peux pas. Je ne peux pas vous aider. Je... je...  
+-- Je... je ne peux pas travailler. Je... fais des crises, marmonne Marie à toute vitesse. Je ne peux pas. Je ne peux pas vous aider. Je... je...  
 Elle recommence à se dandiner, et à tirer sur des mèches de ses cheveux. Ses jambes flageolent.  
---- *Marie ? Ton rythme cardiaque est en train de s'accélérer. Tout va bien ? Veux-tu que je passe une musique relaxante ?* 
+-- *Marie ? Ton rythme cardiaque est en train de s'accélérer. Tout va bien ? Veux-tu que je passe une musique relaxante ?* 
 
---- Non, IA. Ça va... ça va... 
+-- Non, IA. Ça va... ça va... 
 
 Elle souffle, se force à inspirer en rythme. Charles lui tend une main secourable pour l'aider à se tenir debout, main sur laquelle elle s'appuie quelques instants avant de se redresser. Elle n'y peut rien. Elle adore ce contact volé, cette peau étrangère contre la sienne. Elle n'avait jamais pris la main de qui que ce soit, et voilà qu'en l'espace d'une journée, ce Charles a déjà posé trois fois ses doigts sur elle. 
 
---- Vos crises pourraient avoir un intérêt scientifique. Je vous en prie, mademoiselle... 
+-- Vos crises pourraient avoir un intérêt scientifique. Je vous en prie, mademoiselle... 
 
 Marie le détaille. D'un côté, Charles est un homme attirant, et il lui est venu en aide. La moindre des choses serait de lui rendre la pareille. Et d'un autre... c'est un inconnu. Un fou. Mais elle n'a jamais rien fait dans sa vie. Jamais *pu*, plus exactement. Elle panique, agit comme une hystérique. Pas étonnant qu'elle ne soit plus acceptée dans quelque institutions que ce soit. Charles lui offre une opportunité. Rien ne l'empêche après tout, d'accepter. Que faire sinon ? Passer ses journées sur les forums, étendue sur son lit ? Plutôt aider Charles. Et si vraiment, elle se sent trop mal à l'aise avec lui, rien ne l'empêche de retourner chez elle. 
 
---- Je veux bien... essayer, avoue t-elle en se tortillant.  
---- Merci mademoiselle. Merci. Vous ne le regretterez pas, promet Charles.  
+-- Je veux bien... essayer, avoue t-elle en se tortillant.  
+-- Merci mademoiselle. Merci. Vous ne le regretterez pas, promet Charles.  
 Il pianote sur son smartphone et Marie sent le sien s'agiter. Lorsqu'elle baisse les yeux, elle s'aperçoit qu'elle a une notification directe. Du bout du doigt, elle accepte le partage de données. Immédiatement, un message s'affiche sur son écran, elle déchiffre sans mal l'adresse et l'heure. 
 
---- Vous y serez ?  
---- Oui.  
---- À demain dans ce cas.  
-Marie s'éloigne, la gorge nouée à l'idée de se trouver en compagnie de cet homme. C'est un mélange de désir et de répulsion, qu'elle serait bien en peine d'expliquer. --- IA ? 
+-- Vous y serez ?  
+-- Oui.  
+-- À demain dans ce cas.  
+Marie s'éloigne, la gorge nouée à l'idée de se trouver en compagnie de cet homme. C'est un mélange de désir et de répulsion, qu'elle serait bien en peine d'expliquer. -- IA ? 
 
---- *Oui, Marie ? Que puis-je faire pour toi ? Ton véhicule t'attends toujours.* 
+-- *Oui, Marie ? Que puis-je faire pour toi ? Ton véhicule t'attends toujours.* 
 
 La jeune femme hésite puis regarde par dessus son épaule. Charles se tient toujours au milieu de la salle, il la regarde partir. 
 
---- Programme moi un rendez vous pour demain matin, neuf heure. 
+-- Programme moi un rendez vous pour demain matin, neuf heure. 

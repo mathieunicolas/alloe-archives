@@ -12,7 +12,7 @@ Le mal rôdait par ici, c’était bien connu.
 
 Mais Erwin était là, pourtant, seul, pour unique compagnie un cageot de tôle brinquebalant et oxydé, avec une envie folle de pisser. L’idée ne le quittant plus, il déglutit bruyamment et stoppa son véhicule sur le bas-côté de la route, où les pneus côté droit semblèrent s’affaisser un peu trop pour lui assurer de pouvoir repartir sans encombre.
 
---- Et merde ! s’exclama-t-il en claquant la portière et voyant le résultat.
+-- Et merde ! s’exclama-t-il en claquant la portière et voyant le résultat.
 
 Il avait parlé fort. Assez en tout cas pour effrayer les bêtes susceptibles de s’approcher d’un homme et de se mettre à le renifler, enfin, l’espérait-il. Il étira longuement ses bras et son dos, endoloris par les heures de route, son corps long et maigre, à l’allure dégingandée, n’était pas fait pour de si longs voyages dans un véhicule aussi confiné qu’une boîte à chaussures.
 
@@ -26,7 +26,7 @@ Erwin conclut qu’il finirait le chemin à pied. Ce serait inévitable. Près d
 
 Erwin tenta de repousser l’image de ces deux guignols prétentieux. Le froid mordait comme jamais. Le jour était sur le point de décliner et la tempête loin de s’arrêter. Sous cette pluie battante, il prit le chemin en direction du véhicule. Il s’était un peu trop enfoncé dans les fourrés, et le retour se montra hasardeux. La vessie soulagée, mais l’esprit chahuté, les arbres aux longues branches détrempées bernèrent son calamiteux retour au véhicule. Erwin n’était même plus capable de retrouver la route, cette satanée route fangeuse, ou ce qu’il en restait du moins. Elle semblait s’être évaporée, noyée sous l’averse qui n’en finissait pas.
 
---- C’est pas vrai ! hurla-t-il, plus de peur que de rage.
+-- C’est pas vrai ! hurla-t-il, plus de peur que de rage.
 
 Il aurait pourtant juré reprendre le chemin inverse. Mais sous ces eaux, dans cette pénombre et cette peur qui le tenaillait déjà sans qu’il ne daigne se l’admettre, il lui aurait été bien difficile de différencier un bois mort d’un cadavre grouillant de vers. Au fil de ses errances et des minutes qui s’égrenaient, son teint devint encore plus pâle que d’habitude. Glacé jusqu’aux os, il maudit sa vessie. S’il ne s’était pas éloigné, il serait encore à son véhicule où tout un tas d’affaires attendait dans le coffre. Sa vieille carcasse aurait au moins servi à cela. Avant son départ, Erwin avait pris soin de préparer un sac de couchage, une couverture épaisse, deux lampes de poche, une trousse de secours et de quoi faire du feu.
 
@@ -40,7 +40,7 @@ Et bientôt, tout, autour de lui, lui parut brutal.
 
 Erwin se mit à courir. Plus une fuite qu’une course à proprement parler, il ne savait pas où ses pas allaient le diriger, mais pourvu que ce soit à un abri et non pas en bas d’une pente ou pire, d’un gouffre vertigineux et où il se serait certainement rompu le cou.
 
---- Shaya, aide-moi ! dit-il dans le vide, espérant que de là où elle se trouve, son maître lui montre le chemin.
+-- Shaya, aide-moi ! dit-il dans le vide, espérant que de là où elle se trouve, son maître lui montre le chemin.
 
 C’est pour cela qu’il se rendait à Sidhr, justement, et le voyage consistait peut-être déjà en un début d’enseignement, après tout. Une sorte de test à passer afin de prouver sa capacité à suivre cette séance intensive et personnelle. L’enseignement ne commençait peut-être pas le lendemain, mais ce soir, déjà. L’idée l’apaisa autant qu’elle lui déplut.
 

@@ -42,11 +42,11 @@ Elle se trouvait dans une pièce toute faite de bois qui,   à première vue, pa
 
 Celle-ci s’avança, fébrile. Il n’y avait personne d’autre, tout était silencieux. Elle s’accroupit au niveau de l’enfant qui détourna son regard, peu impressionné par la présence de la jeune femme. Il ne devait pas avoir plus de trois ans, il jouait avec ses doigts et les boutons de sa salopette. 
 
---- Qu’est-ce que tu fais là, tout seul ?
+-- Qu’est-ce que tu fais là, tout seul ?
 
 L’enfant ne répondait pas, encore faudrait-il qu’il sache parler. La jeune femme s’assit en tailleur, abasourdie par la rencontre qu’elle était en train de faire. Elle ne saurait dire si tout ça était réel, pourtant, elle se rappela de la salopette rouge qu’elle portait à ce moment-là. Elle se rappela des moments de solitude, qu’elle passait alors que ses parents ne la surveillaient que par l’intermédiaire d’une caméra qui avait pris la fonction de nounou dans bien des foyers. Elle sentit sa gorge se serrer alors qu’elle passa tendrement sa main dans les cheveux courts du bébé qui ne prêta pas d’attention à ce geste.
 
---- Robin ?
+-- Robin ?
 
 L’enfant interpellé se tourna vers la femme qu’elle deviendrait, en l’interrogeant du regard. Elle ne répondrait pas. Elle se rappelait avoir mis bien plus de temps que la majorité des enfants avant de prononcer ses premiers mots.  
 
@@ -63,7 +63,7 @@ Elle se dirigea vers le second chalet. Elle posa sa main sur la poignée, mais h
 
 Cachée dans une lourde couverture, la jeune fille ne laisse dépasser que ses pieds habillés de chaussettes dépareillées. Robin se penche à l’autre extrémité du canapé pour soulever la couverture qui lui cache le visage. Celui-ci se découvre, très proche du sien, mais contusionné, gonflé. La jeune fille doit avoir 13 ans. Elle regarde Robin sans se sentir interpellée. Elle se redresse, s’assied en faisant face à sa version adulte, toujours enroulée dans sa couverture. Elle ne sourit pas, son air est grave.
 
---- Bonjour.
+-- Bonjour.
 
 Tenta timidement Robin. 
 
@@ -73,13 +73,13 @@ Robin regarde le sol. Elle savait que ce serait peut-être difficile, mais elle 
 
 Elle expira. Elle ne devait pas abandonner maintenant. Elle ne devait pas s‘abandonner maintenant. 
 
---- Je sais ce qu’il t’arrive. Je suis désolée. Les gens ne sont pas tendres parfois. 
+-- Je sais ce qu’il t’arrive. Je suis désolée. Les gens ne sont pas tendres parfois. 
 
 La jeune fille détourne le regard. Robin n’avait jamais été forte avec les mots. Ce n’était certainement pas maintenant qu’elle allait trouver les bons pour redresser son destin. Elle ne pouvait rien y changer, de toutes manières, et elle devrait regarder cette jeune fille s’éteindre, se taire, encore plus, et disparaître du monde. 
 
 Une larme s’échappa sur sa joue et Robin l’essuya d’un coup de manche. Une deuxième la suivit très vite. Elle ne prit pas le temps de s’en occuper. 
 
---- Je suis désolée. Je suis désolée. 
+-- Je suis désolée. Je suis désolée. 
 
 Désolée de ne pas avoir fait plus, désolée de ne plus rien avoir fait pour que ça aille mieux, désolée de s’être abandonnée, désolée de ne pas avoir su aider la jeune fille qu’elle était. 
 
@@ -95,7 +95,7 @@ Elle ouvrit la porte et, comme prévu, elle connaissait bien la silhouette qui f
 
 Robin vint se poster devant la cheminée pour lui faire face. Elle n’était pas beaucoup plus vieille que sa pitoyable jumelle. Celle-ci porta son regard sur Robin, larmoyante et désespérée. 
 
---- Pourquoi tu es là ?  
+-- Pourquoi tu es là ?  
 C’était une question légitime, qui brisa le cœur de Robin. Elle ne répondit pas et vint s’asseoir aux côtés de la jeune femme. Elle se saisit de sa main tremblante. 
 
 Elle ne devrait pas être là.

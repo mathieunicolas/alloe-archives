@@ -12,15 +12,15 @@ Je retourne à mon poste d’observation, bien décidé à ne plus vivre ce genr
 
 « Brave homme... » je sursaute presque au son de cette voix, j’étais tellement dans mes pensées que je n’ai même pas vu venir vers moi cette charmante dame. Elle semble avoir la petite soixantaine mais elle est très élégante avec son maquillage et son beau manteau rouge. Me remettant discrètement de mes émotions, je lui accorde une oreille attentive et curieuse. Elle continue donc :
 
----Vous qui êtes ici toute la journée, auriez-vous vu un homme d’une soixantaine d’années, bien habillé, qui aurait attendu ici vers 14h30 ? 
+-- Vous qui êtes ici toute la journée, auriez-vous vu un homme d’une soixantaine d’années, bien habillé, qui aurait attendu ici vers 14h30 ? 
 
 C’est pas vrai, pas encore... si ?
 
----Non madame, je suis désolé, mais je ne passe pas mon temps dans cette gare ! »
+-- Non madame, je suis désolé, mais je ne passe pas mon temps dans cette gare ! »
 
 Je m’éloigne un peu agacé avant d’ajouter :
 
----Mais pourquoi tout le monde pense que je suis SDF ici ? C’est dingue ! 
+-- Mais pourquoi tout le monde pense que je suis SDF ici ? C’est dingue ! 
 
 Après quelques secondes, le temps de me calmer, je regrette d’avoir répondu un peu sèchement à cette pauvre dame car elle n’y est pour rien, elle n’est pas responsable si mes vêtements sont sales... et puis le bonnet ne doit pas aider... Mais j’y pense, si elle me voit dans cet état-là, que va-t-elle penser de moi ? Quelle image aura-t-elle ?... Non, non, calme-toi, tout va bien aller... Il n’y a aucune raison que cela arrive. 
 

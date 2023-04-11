@@ -6,7 +6,7 @@ Des papillons volettent autour de nous. Je suis avec un garçon que je ne reconn
 
 Mon réveil me sauve de cette situation délicate. Je l’éteins en sursaut et allume de suite ma lampe de chevet. J’aurais bien dormi encore un peu mais j’ai un boulot à finir et même si l’humeur n’y est pas, il faut vraiment que je m’y mette. Je me redresse dans mon lit et aperçois la pile de vêtements bien pliés sur mon fauteuil. On dirait qu’il y a un jean, un pull rouge et blanc et un truc noir que je n’identifie pas trop de là où je suis et, posée sur le tout, une paire de pompes noires, rutilantes, qui me semblent bien être des Doc Martens.
 
---- Putain Mehdi !
+-- Putain Mehdi !
 
 Ça fait quatre nuits qu’il a pas dormi chez moi et quand on s’est quittés mardi c’était un peu tendu. Par contre, il a toujours mes clés. Je me glisse sur mon lit jusqu’au fauteuil et j’aperçois une feuille enroulée qui dépasse d’une des chaussures. En la prenant, je fais tomber un billet de 50 euros qui devait être roulé avec.
 
@@ -34,11 +34,11 @@ Quand j’arrive à la gare Lille Flandres, je constate qu’elle est pleine de 
 
 J’arrive enfin au Relay. J’ai du mal à trouver les bouilloires, et pour cause ! Elles sont tout en haut d’une étagère, dans un coin perdu. Je demande à la caissière (qui n’est pas Mehdi !) si elle peut m’en attraper une et elle me répond :
 
---- Vous êtes Juliette ?
+-- Vous êtes Juliette ?
 
 Devant mon air abasourdi, elle sort une boîte de sous le comptoir et me la tend :
 
---- Voilà, ça fera 49 euros.
+-- Voilà, ça fera 49 euros.
 
 Je prends la bouilloire, la paye et sors du magasin, complètement sonnée. Je retourne la boîte dans tous les sens et n’y voit rien de particulier. Je l’ouvre et découvre à l’intérieur un nouveau papier écrit de la main de Mehdi.
 
@@ -60,7 +60,7 @@ J’essaie de lire mais n’y parviens pas, mon esprit est trop encombré. J’o
 
 Je replonge dans la soirée de mardi. Mehdi était chez moi, comme d’habitude. Ça fait presqu’un an qu’il dort chez moi pratiquement tous les soirs. Il a toujours son appart et la question était justement de savoir s’il fallait le garder ou pas. Avec le recul, je me dis que j’ai dû paniquer en me représentant le côté irréversible d’une telle décision. Si Mehdi lâche son appart, ça veut dire que nous allons vivre ensemble tout le temps. Pourquoi pas ? Nous sommes en couple depuis deux ans, on s’entend bien, on n’a pas de clash. Enfin, on n’avait pas eu de gros clash jusqu’à mardi. Il était en train de me dire qu’il pensait rendre son studio et là, j’ai eu une vision claire de notre vie et la lui ai exposée : un petit couple pépère, qui se connaît par cœur, qui se dit vite fait bonjour quand il se retrouve le soir avant que chacun ne retourne sur son téléphone. Comme je lui ai dit :
 
---- On n’a même pas attendu trois ans pour se faire chier ensemble.
+-- On n’a même pas attendu trois ans pour se faire chier ensemble.
 
 Et c’est là qu’il a pris la porte. C’est dur à réaliser mais c’est vrai. A part le fait qu’on s’entende bien, qu’est-ce qu’on vit ? un petit resto de temps en temps, on invite parfois des potes. Il m’a offert pour nos un an un voyage à Venise. C’était sympa mais très vite on a repris l’habitude de ne plus se regarder, de ne plus se parler. Même quand on fait l’amour c’est mécanique. On ne déroge pas à la règle, la routine tue notre couple. Nous approchons du tunnel. Je parle du train même si la métaphore nous irait très bien aussi. Je ne ressens finalement aucune angoisse ni excitation particulière. Ça y est, nous y sommes et le trajet suit son cours sous les lumières artificielles.
 

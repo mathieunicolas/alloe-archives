@@ -9,7 +9,7 @@ Les villageois se hâtent de rentrer chez eux, laissant pour certains leur œuvr
 
 L’ordre de l’urgence n’est dérangé que par un homme, portant à son bras une petite fille effrayée. Il court aussi vite qu’il le peut pour traverser le village et arriver à temps chez lui. Une fois qu’il fait face aux barricades, il prend un instant, terrorisé et haletant, pour pivoter. Par une curiosité qu’il ne peut pas contenir, il a besoin de savoir à quoi ils feront face. Il aperçoit un peu plus loin, immobiles sur une colline surplombant le village, quatre figures se dessinent dans le crépuscule. Soudain, elles se mettent en mouvement. L’homme reprend sa course, serrant son enfant contre lui. Il peut entendre la gigantesque porte de bois se refermer dans un souffle rauque. Il frappe à la première habitation qu’il atteint.
 
---- Laissez-nous entrer, ils arrivent !
+-- Laissez-nous entrer, ils arrivent !
 
 Ses prières augmentent en violence quand on lui refuse l’entrée. Il ne préfère pas prendre le risque de ne pas atteindre sa chaumière à temps. Il passe d’une porte à l’autre en espérant qu’on lui offre le gîte, au moins le temps de l’attaque. Pendant ce temps, dans ses bras, la petite fille se blottit contre lui, ses pleurs étouffés par les vêtements ainsi que son angoisse qui, par chance, la rend aussi muette qu’aveugle : elle se refuse à faire face à la menace. Il frappe à une dernière porte, mais c’est trop tard : il peut entendre les grincements de la porte suivis par les rires des vagabonds. Il ne faisait à présent pas de doute sur la nature de ces inconnus : un homme capable de bouger à lui seul la haute porte de bois massif ne peut pas être humain.
 
@@ -20,7 +20,7 @@ Les quatre hommes avaient surveillé le village avec la volonté d’attaquer un
 
 Ils sentent la grandeur de la barricade les écraser. Un obstacle qui n’entame pas leur gaieté apparente. L’homme à la tête du groupe laisse tomber au sol le bagage qu’il porte sur le dos, laissant rouler au sol quelques viscères de bêtes chassées plus tôt. Il pose deux mains contre le bois humide des portes et tous ses muscles se contractent. Dans un râle, il pousse les portes jusqu’à faire bouger la barricade. Les trois autres hommes, bien que coutumiers de la force surnaturelle de leur chef, ne se lassent pas d’en être les témoins privilégiés. Les rires reprennent de plus belle alors que le grincement de la porte inonde le village de son retentissement funeste.
 
---- Thelchilde, Gausle, prenez les tonneaux et videz-les partout dans le village. Rixende, tu viens avec moi. On va s’occuper de décorer un peu les environs.
+-- Thelchilde, Gausle, prenez les tonneaux et videz-les partout dans le village. Rixende, tu viens avec moi. On va s’occuper de décorer un peu les environs.
 
 Les deux premiers s’exécutent sans broncher. Ils se saisissent des tonneaux qui les accompagnent, ne possédant visiblement pas la même force que leur meneur. L’un d’eux se positionne derrière les tonneaux, les lardant à coup de couteau pour laisser une mélasse brune et dense se répandre au sol. Les deux hommes attachent les tonneaux à des cordes qu’ils traînent derrière eux, laissant la boue odorante se déverser librement sur leur chemin. Très vite, les odeurs se répandent dans le village.
 
@@ -36,13 +36,13 @@ Les silhouettes évoluent face à lui, tirant sur des cordes attachées à quelq
 
 Un cri d’effroi perça la nuit, attirant l’attention de Rixende et celle de son chef, Balde, tous deux occupés à jeter ça et là des ossements et des carcasses d’animaux. Les mains rougies par son labeur, Rixende essuya les gouttes de sueur qui perlaient sur son front d’un geste du poignet, peignant son visage de sang, alors que son regard se dirigeait vers la provenance du cri :
 
---- Vous voulez que j’aille voir ?
+-- Vous voulez que j’aille voir ?
 
---- Non, répondit le chef d’une voix agacée et sans détourner le regard de son sac à ossements, ça ne venait ni de Thelchilde ni de Gausle. J’avais pourtant bien dit qu’on ne s’en prenait à personne ce soir.
+-- Non, répondit le chef d’une voix agacée et sans détourner le regard de son sac à ossements, ça ne venait ni de Thelchilde ni de Gausle. J’avais pourtant bien dit qu’on ne s’en prenait à personne ce soir.
 
 Ces derniers mots, il les avait maugréés pour lui-même. Tenir ses hommes n’était pas la tâche la plus simple. Heureusement, il savait que la simple existence de sa force surhumaine lui valait, si non le respect, la peur de ses comparses. Il saurait en faire bon usage pour faire respecter ses ordres à l’avenir.
 
---- Continue jusqu’à ce que tout soit répandu au sol. Je vais m’occuper des points d’eau.
+-- Continue jusqu’à ce que tout soit répandu au sol. Je vais m’occuper des points d’eau.
 
 Sur ces mots, il se saisit d’une sacoche en toile presque aussi haute que lui, remplie à l’excès, qu’il passe sur son épaule comme si elle était vide. Un peu d’une bouillie sanglante qui tachait la toile brune dégoulina sur l’épaule de Balde sans qu’il en ait cure. L’odeur putride ne le dérangeait plus depuis longtemps. À vrai dire, il ne la sentait plus.
 
@@ -53,31 +53,31 @@ De son côté, Balde arrive au puits qui se trouve au centre de la place du vill
 
 Balde fut interrompu par le bruit sourd des barils vides qui rebondissaient sur le sol, tiré nonchalamment par ses deux hommes.
 
---- On a fini, chef. On a vidé tous les tonneaux et on a fait le tour de la ville.
+-- On a fini, chef. On a vidé tous les tonneaux et on a fait le tour de la ville.
 
---- Et vous ne vous en êtes pris à personne ? questionna Balde.
+-- Et vous ne vous en êtes pris à personne ? questionna Balde.
 
---- Non.
+-- Non.
 
---- Et ce cri tout à l’heure ? C’était vous ?
+-- Et ce cri tout à l’heure ? C’était vous ?
 
---- Un imbécile qui n’avait pas trouvé refuge. Il a suffi de le secouer un peu pour qu’il tourne de l’œil. Il est en train de pourrir dans la boue. Il avait une gamine, on l’a laissé fuir. Vous aviez dit qu’on devait juste leur faire peur.
+-- Un imbécile qui n’avait pas trouvé refuge. Il a suffi de le secouer un peu pour qu’il tourne de l’œil. Il est en train de pourrir dans la boue. Il avait une gamine, on l’a laissé fuir. Vous aviez dit qu’on devait juste leur faire peur.
 
 Balde lâcha finalement la sacoche vide dans le puits avec le reste des déchets et rejoignit ses hommes. Il frappa Gausle, celui qui avait pris la parole, dans le dos, amicalement. Une frappe amicale qui, avec sa force, coupait le souffle de n’importe qui.
 
---- C’est bien ce que j’ai dit.
+-- C’est bien ce que j’ai dit.
 
 Rixende rejoint à son tour ses compagnons, attiré par le bruit de la conversation, une poignée d’os dans chaque main. Balde l’interpella, l’enjoignant à partager ses sacs d’ossements avec ses camarades. Il supervisa l’ordre alors que les trois hommes attrapaient des carcasses qu’ils prirent plaisir à jeter contre les habitations. Les rires sadiques fusaient. L’un d’eux alluma un feu à partir de l’un des sacs qui venaient d’être vidé à l’aide de sa torche. Il laissa la toile brûler dans la boue pour que celui-ci ne se répande pas et jeta des os et des fourrures dans les flammes. Pour le villageois assez courageux et souvent imprudent qui laissait sa curiosité l’emporter et essayait d’apercevoir ce qui se passait dans les rues par une ouverture quelconque, c’était un rituel morbide. Les hommes dansaient frénétiquement comme s’ils se nourrissaient de la peur qui régnait sur le village. Leurs actes témoignaient d’une perfidie qui les rendait imprévisibles : pourquoi étaient-ils là ? Que faisaient-ils ? Que voulaient-ils ? Leur rite malveillant avait pris ce village pour cible et qu’est-ce que cela signifiait pour le bien-être de ses habitants ?
 
 Leur jeu malsain avait pris des heures, mais les vagabonds étaient finalement à court d’ossements et d’insultes à hurler à la lune. Il était temps de rentrer.
 
---- Mettez le feu aux sacs qui restent. Attention que les flammes soient contrôlées. On ne voudrait pas que ce si joli village finisse en cendres.
+-- Mettez le feu aux sacs qui restent. Attention que les flammes soient contrôlées. On ne voudrait pas que ce si joli village finisse en cendres.
 
 Le rictus mauvais des hommes accompagna l’exécution de l’ordre. Très vite, la boue embrassa les brasiers éphémères pour les éteindre. On ne pouvait distinguer dans la nuit plus que les quatre torches qui éclairaient leurs fielleux porteurs. Les vagabonds marchèrent d’un pas lent vers les portes du village, restées ouvertes.
 
---- J’aimerais rester, histoire de voir la tête que feront ces abrutis demain matin.
+-- J’aimerais rester, histoire de voir la tête que feront ces abrutis demain matin.
 
---- Ces faibles d’esprit penseront certainement que nous sommes des envoyés du Malin !
+-- Ces faibles d’esprit penseront certainement que nous sommes des envoyés du Malin !
 
 Ils riaient de plus belle, trop conscients de l’emprise des superstitions sur les villageois. Une crédulité qui les plaçait au rang de proie et eux de prédateurs.
 

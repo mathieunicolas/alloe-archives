@@ -8,13 +8,13 @@ Ses yeux s’arrêtent sur Charles. Elle a toujours eu un faible pour les bruns 
 
 C’est lorsque Charles se tourne vers elle et lui sourit qu’elle réalise qu’elle le fixe depuis déjà bien trop longtemps. Il quitte alors le chef du projet avec qui il était en grande discussion jusque-là, celui-ci plongeant son nez dans son assistant personnel, puis se dirige vers Viviane. Arrivé à son niveau, sans se départir de son sourire, il lance la conversation.
 
---- Alors Viviane, que penses-tu de ces toasts ?
+-- Alors Viviane, que penses-tu de ces toasts ?
 
 Elle tente de garder sa contenance et de cacher son malaise.
 
---- Ils sont très bons.
+-- Ils sont très bons.
 
---- Ha ha ! J’en suis ravi ! Ils viennent du traiteur à deux rues d’ici, je n’ai jamais compris pourquoi ils n’avaient pas plus de clients vu la qualité de leurs produits !
+-- Ha ha ! J’en suis ravi ! Ils viennent du traiteur à deux rues d’ici, je n’ai jamais compris pourquoi ils n’avaient pas plus de clients vu la qualité de leurs produits !
 
 Ne sachant quoi répondre, Viviane hoche vaguement la tête en se forçant à sourire. Charles, coutumier du malaise social de ses collègues, qui est en fait devenu un trait commun de la majorité des gens, s’en rend à peine compte et poursuit presque seul cette discussion, exactement comme il vient de le faire avec le chef de projet, et avec le collègue précédent... À part lui, la quasi totalité des personnes présentes dans la pièce, quand elles n’ont pas les yeux dans le vague avec des écouteurs sans fil sur les oreilles, ont le nez collé à leur assistant personnel numérique, leur tablette, leur smartphone, leur smartwatch... Bref, à tous ces objets dont on peut se demander si l’« intelligence » ne consiste pas à aspirer celle de leur propriétaire en s’accaparant leur temps de cerveau disponible. Et Charles, avec son apparente aisance sociale, y est tellement habitué qu’il n’y prête même plus attention, et qu’il est très loin de réaliser que lui-même cherche à pallier son propre malaise en se montrant ainsi aussi avenant. 
 
@@ -22,21 +22,21 @@ La conversation avec Viviane a rapidement dérivé sur les promesses à venir de
 
 Alors que Viviane s’apprêtait à enchaîner une seconde phrase après en avoir achevé une première de plus de quatre mots, la « montre intelligente » de Charles émet une série de petits *bip*. Il se penche dessus tout en écoutant ce que lui dit sa collègue. À peine a-t-elle terminé, qu’il reprend ses derniers mots pour noter qu’il l’a bien écoutée avant de mettre fin à la discussion :
 
---- Viviane, je n’aurais pas mieux dit : nous allons changer le monde ! À présent, excuse-moi, j’aimerais faire une annonce avant que l’on ne rentre chez nous.
+-- Viviane, je n’aurais pas mieux dit : nous allons changer le monde ! À présent, excuse-moi, j’aimerais faire une annonce avant que l’on ne rentre chez nous.
 
 Viviane cache sa déception de son mieux tout en acquiesçant. Charles, armé de sa flûte de champagne, se dirige vers le centre de la pièce et interpelle ses collègues. Les deux conversations anémiques cessent et de nombreux visages se redressent, quittant les écrans qui les avaient happés. Charles poursuit alors :
 
---- Chers collègues, je m’adresse à vous au nom de Jung-Hwa...
+-- Chers collègues, je m’adresse à vous au nom de Jung-Hwa...
 
 Il désigne le chef de projet.
 
---- ... et de toute la direction. Cette modeste sauterie, vous la méritez, nous la méritons tous. Si c’est la réussite de tous les tests qui nous réunit aujourd’hui, n’oubliez pas que ce que nous célébrons va bien au-delà. En ce jour, nous célébrons l’aboutissement de neuf années de travail acharné, nous célébrons les nouvelles frontières que nous avons franchies dans la compréhension du cerveau humain, et, Viviane m’en parlait juste à l’instant, plus encore que tout le reste, nous célébrons le nouveau monde. Car, oui ! Chères consœurs et chers confrères, j’en suis convaincu : le *TransDreamer*, notre bébé, va changer le monde. Envisagez les horizons infinis d’exploration qu’il ouvre à l’humanité, et pas seulement dans le domaine des neurosciences, puisque l’on peut tout aussi bien envisager les apports qu’il peut fournir à tous les autres... Songez le bien que cela peut faire dans la lutte contre les traumas, dans le bien-être individuel, ou même dans le divertissement dès lors que l’on pourra enregistrer ses rêves pour les diffuser via les réseaux... Et je suis sûrement encore très loin de saisir toute la portée de notre création : comme je vous le disais, les horizons d’exploration sont infinis. Alors, portons un toast. À nous, d’abord, en récompense de toutes ces heures passées sur le *TransDreamer*, souvent au-delà du raisonnable ; et au nouveau monde que nous contribuons humblement à créer en le mettant à la disposition de l’humanité...
+-- ... et de toute la direction. Cette modeste sauterie, vous la méritez, nous la méritons tous. Si c’est la réussite de tous les tests qui nous réunit aujourd’hui, n’oubliez pas que ce que nous célébrons va bien au-delà. En ce jour, nous célébrons l’aboutissement de neuf années de travail acharné, nous célébrons les nouvelles frontières que nous avons franchies dans la compréhension du cerveau humain, et, Viviane m’en parlait juste à l’instant, plus encore que tout le reste, nous célébrons le nouveau monde. Car, oui ! Chères consœurs et chers confrères, j’en suis convaincu : le *TransDreamer*, notre bébé, va changer le monde. Envisagez les horizons infinis d’exploration qu’il ouvre à l’humanité, et pas seulement dans le domaine des neurosciences, puisque l’on peut tout aussi bien envisager les apports qu’il peut fournir à tous les autres... Songez le bien que cela peut faire dans la lutte contre les traumas, dans le bien-être individuel, ou même dans le divertissement dès lors que l’on pourra enregistrer ses rêves pour les diffuser via les réseaux... Et je suis sûrement encore très loin de saisir toute la portée de notre création : comme je vous le disais, les horizons d’exploration sont infinis. Alors, portons un toast. À nous, d’abord, en récompense de toutes ces heures passées sur le *TransDreamer*, souvent au-delà du raisonnable ; et au nouveau monde que nous contribuons humblement à créer en le mettant à la disposition de l’humanité...
 
 Il lève son verre.
 
---- À nous, et au nouveau monde !
+-- À nous, et au nouveau monde !
 
---- À nous et au nouveau monde ! reprennent en chœur toutes les personnes présentes, trop contentes de ne rien avoir à faire d’autre que répéter.
+-- À nous et au nouveau monde ! reprennent en chœur toutes les personnes présentes, trop contentes de ne rien avoir à faire d’autre que répéter.
 
 Alors qu’il avale une gorgée d’alcool pétillant, Charles ignore encore à quel point ce « nouveau monde » sera différent de ce qu’il imagine...
 
@@ -72,7 +72,7 @@ Tapotant sur sa tablette pendant le repas familial devant la télévision, l’a
 
 *Rendez-vous sur transdreamer.buy et commandez sans attendre !*
 
---- Maman ! Je sais ce que je veux pour mon anniversaire ! Et en plus, c’est en promotion !
+-- Maman ! Je sais ce que je veux pour mon anniversaire ! Et en plus, c’est en promotion !
 
 
 Entrant sous la douche avant que les enfants ne se réveillent, la mère célibataire profite de quelques instants de détente avec la radio en fond sonore, quand son attention est attirée par une voix masculine suave...

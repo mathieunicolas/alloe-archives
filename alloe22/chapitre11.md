@@ -16,9 +16,9 @@ Je reporte mon attention sur l’écran de mon téléphone. Toujours aucune nouv
 
 Pour occuper le pédalage, il fait la course avec sa voisine de vélo-recharge ; il a l’air sympa dans son look ado attardé en jean basket. Une fois le téléphone chargé, il me rend le câble.
 
---- Merci, c’est bon, je suis prêt pour le tour de France !
+-- Merci, c’est bon, je suis prêt pour le tour de France !
 
---- Mmmh, lui répondis-je, les pensées ailleurs.
+-- Mmmh, lui répondis-je, les pensées ailleurs.
 
 Puis je reprends ma marche dans le hall en imaginant mes retrouvailles avec Pierre.
 

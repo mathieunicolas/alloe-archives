@@ -66,7 +66,7 @@ Maman était adossée contre l’évier, elle s’était servie une grande rasad
 
 * Tous des cons ! Tu te rends compte Etienne, tous des cons ! comme si 4 ans n’avaient pas suffi...
 
-J’apparus dans l’encadrement, bronzé, les cheveux mi--- longs, vêtu du short et d’un t-shirt hawaïen, une roulée a moitié éteint collée au coin de mes lèvres.
+J’apparus dans l’encadrement, bronzé, les cheveux mi-- longs, vêtu du short et d’un t-shirt hawaïen, une roulée a moitié éteint collée au coin de mes lèvres.
 
 * L’investiture du second mandat de Donald Tramp prendra effet officiellement en janvier...la journaliste continuait de traiter l’information sur l’écran. En arrière-plan, on voyait le président accompagné de sa femme prenant un bain de foule 
 * ‘pa, je prends ta voiture,  y’a une fête sur la plage.   

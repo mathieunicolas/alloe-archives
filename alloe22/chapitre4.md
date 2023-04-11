@@ -28,6 +28,6 @@ Qui s’en charge ? Toi ? Oui c’est ce qu’on avait dit non ? Sam était agit
 
 Les trois frères s’accoudèrent à la passerelle. Sam ouvrit son sac à dos posé à ses pieds. Il ouvrit le vase. Léon inspecta rapidement les alentours. Les cendres formèrent un nuage plus grand que prévu. Ils n’osèrent pas se regarder. Sam plongea encore une fois dans son sac. Il lança le béret noir dans les airs. La soucoupe noire tournoya quelques secondes avant d’aller se loger dans une haie au bord du canal.
 
---- On s’en va, les gars. 
+-- On s’en va, les gars. 
 
 Quand quelqu’un meurt, c’est normal de le voir dans la rue, un jardin, une gare. Phénomène cognitif bien connu chez les endeuillés, cela s’appelle le vécu subjectif de contact avec le défunt. Sam n’en parlerait jamais à personne. Ce serait son secret avec elle comme un cadeau d’adieu.

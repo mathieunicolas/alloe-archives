@@ -27,39 +27,39 @@ En cela, je suis reconnaissante à mon oncle : il aura fallu que je passe par la
 Quoi qu’il en soit, bientôt, bientôt, je vais pouvoir étudier mémère de plus près ! Quelques détails à régler, deux ou trois choses à débusquer, si au passage je peux apprendre d’où vient Tom et pourquoi il se terre ainsi depuis tant d’années... je serai la plus heureuse des délinquantes !
 
 
---- Tiens, putrescente guenille ! Contente de voir que tu ne m’as pas oubliée !
+-- Tiens, putrescente guenille ! Contente de voir que tu ne m’as pas oubliée !
 
---- Gente demoiselle au doux langage, comment l’aurais-je pu ? Je me réjouis de vous admirer à la lumière de la liberté !
+-- Gente demoiselle au doux langage, comment l’aurais-je pu ? Je me réjouis de vous admirer à la lumière de la liberté !
 
---- Ouais, ouais, alors, quand passe-t-on à l’attaque ? Tu as pu repérer les tours de garde ?
+-- Ouais, ouais, alors, quand passe-t-on à l’attaque ? Tu as pu repérer les tours de garde ?
 
---- Hum... et si nous en discutions dans un lieu plus sûr ? Non que la prison ne me paraisse le lieu le plus agréable du village, mais si je pouvais profiter de quelques heures de permission avant de me faire dénoncer par une de ces commères aux aguets...
+-- Hum... et si nous en discutions dans un lieu plus sûr ? Non que la prison ne me paraisse le lieu le plus agréable du village, mais si je pouvais profiter de quelques heures de permission avant de me faire dénoncer par une de ces commères aux aguets...
 
---- Un lieu sûr, sans commères aux alentours, ici ? Laisse-moi réfléchir...
+-- Un lieu sûr, sans commères aux alentours, ici ? Laisse-moi réfléchir...
 
---- Chez moi ?
+-- Chez moi ?
 
---- Chez toi ?
+-- Chez toi ?
 
---- Chez moi, oui.
+-- Chez moi, oui.
 
---- Parce que... tu as un chez-toi ?
+-- Parce que... tu as un chez-toi ?
 
---- Eh bien, si je te le propose...
+-- Eh bien, si je te le propose...
 
---- Il a un chez-lui ! Ça alors, le criminel ténébreux et solitaire a un chez-lui !
+-- Il a un chez-lui ! Ça alors, le criminel ténébreux et solitaire a un chez-lui !
 
---- Euh... Kheira, on peut y aller maintenant ?
+-- Euh... Kheira, on peut y aller maintenant ?
 
---- Le vagabond taciturne, l’ermite misanthrope, l’énigmatique reclus, un chez-lui !
+-- Le vagabond taciturne, l’ermite misanthrope, l’énigmatique reclus, un chez-lui !
 
---- Kheira ?
+-- Kheira ?
 
---- Le mystérieux étranger, l’impénétrable inconnu, le nébuleux...
+-- Le mystérieux étranger, l’impénétrable inconnu, le nébuleux...
 
---- Kheira !
+-- Kheira !
 
---- Ça va, ça va, allons-y.
+-- Ça va, ça va, allons-y.
 
 J’emboîte le pas à Tom. Il traverse la place, décidé, contourne le puits, esquive un seau qui, renversé, se répand à terre, se faufile dans le cortège de ménagères partageant les derniers potins en attendant leur tour de puiser l’eau. Leurs caquètements se mélangent au cliquetis des engrenages alentour, emplissant la place du vacarme quotidien au village.
 
@@ -73,35 +73,35 @@ Eh ! mon oncle ne m’a pas couronnée du titre de la plus impertinente inquisit
 
 Il prend à gauche, avale une ruelle nauséabonde à grandes enjambées, escalade un muret, traverse une petite cour obscure, dévale quelques marches, se faufile entre deux cabanons biscornus...
 
---- Tom !
+-- Tom !
 
---- Hum, oui, Kheira ?
+-- Hum, oui, Kheira ?
 
---- Juste comme ça : et si tu arrêtais de courir et marchais à mes côtés ?
+-- Juste comme ça : et si tu arrêtais de courir et marchais à mes côtés ?
 
---- À tes côtés ? L’invitation est tentante...
+-- À tes côtés ? L’invitation est tentante...
 
---- Oui, que je te cuisine un peu. Pourquoi être sorti du village hier ? Non que l’extérieur ne m’attire autant que toi, mais une raison précise ? Un besoin soudain de mourir asphyxié ?
+-- Oui, que je te cuisine un peu. Pourquoi être sorti du village hier ? Non que l’extérieur ne m’attire autant que toi, mais une raison précise ? Un besoin soudain de mourir asphyxié ?
 
---- Ah ! Kheira, vraiment, être à tes côtés me tente. Mais si tu t’obstines, je vais devoir te délaisser.
+-- Ah ! Kheira, vraiment, être à tes côtés me tente. Mais si tu t’obstines, je vais devoir te délaisser.
 
---- Essaie donc de me semer, tiens ! Je ne tiens pas à jouer la suivante énamourée, accrochée à chacun de tes pas !
+-- Essaie donc de me semer, tiens ! Je ne tiens pas à jouer la suivante énamourée, accrochée à chacun de tes pas !
 
---- Eh bien, ouvre la voie, je t’en prie. Direction nord-est !
+-- Eh bien, ouvre la voie, je t’en prie. Direction nord-est !
 
---- Enfin, en voilà une bonne décision.
+-- Enfin, en voilà une bonne décision.
 
 C’est donc d’un pas plus serein, et après de multiples tentatives d’investigation avortées que nous arrivâmes au « repaire de Tom ».
 
 Et, messieurs, mesdames, quel repaire !
 
-À l’orée du village, au fin fond du quartier le plus mal famé --- entendez vide et abandonné --- une maison délaissée, en ruine. Fumet putride et bâtiments défoncés aux alentours.
+À l’orée du village, au fin fond du quartier le plus mal famé -- entendez vide et abandonné -- une maison délaissée, en ruine. Fumet putride et bâtiments défoncés aux alentours.
 
 Voilà pour le décor.
 
 Montez maintenant d’un étage, comme vous le pouvez. Personnellement, j’ai dû revoir ma technique de marelle et sautiller gaiement entre les trous et les planches moisies, tout en esquivant les poutres jaillissant d’endroits incongrus, pour parvenir, essoufflée, mais en sécurité, sur le pallier.
 
-Tom pousse la porte --- la pousse, littéralement. Pas de serrure ou d’engrenage sécurisé ici, que nenni. 
+Tom pousse la porte -- la pousse, littéralement. Pas de serrure ou d’engrenage sécurisé ici, que nenni. 
 
 Tom pousse la porte, donc.
 
@@ -125,65 +125,65 @@ Mais celles-ci, celles qui jonchent le sol de Tom, et recouvrent ses murs, je ne
 
 Sacré choc, hein ? En tout cas, c’est sûrement ce qui vient de m’arriver, puisque Tom semble me parler depuis une bonne minute sans que je m’en sois aperçu.
 
---- Donc, le mieux serait d’agir ce soir. À la faveur de la nuit, on passera plus inaperçus. Frod est de garde toute la journée, mais Janis et Elane doivent le remplacer à la cinquième cloche.
+-- Donc, le mieux serait d’agir ce soir. À la faveur de la nuit, on passera plus inaperçus. Frod est de garde toute la journée, mais Janis et Elane doivent le remplacer à la cinquième cloche.
 
---- Tom, t’es qui ?
+-- Tom, t’es qui ?
 
---- Pardon ?
+-- Pardon ?
 
---- C’est quoi, tout ça ? Tu viens d’où ? Pourquoi personne ne te connaît au village ?
+-- C’est quoi, tout ça ? Tu viens d’où ? Pourquoi personne ne te connaît au village ?
 
---- OK ! Il y a un problème, Kheira ?
+-- OK ! Il y a un problème, Kheira ?
 
---- Oui. Je déteste ne pas comprendre, je déteste ne pas savoir. Et là, y’a trop d’inconnues. Donc tu vas m’expliquer.
+-- Oui. Je déteste ne pas comprendre, je déteste ne pas savoir. Et là, y’a trop d’inconnues. Donc tu vas m’expliquer.
 
---- Hum, et si on revenait au plan ? Pour ce soir, le timing est serré. Il faut encore qu’on réfléchisse à un moyen de forcer le bâtiment, sans se faire repérer, et de rassembler les outils nécessaires pour...
+-- Hum, et si on revenait au plan ? Pour ce soir, le timing est serré. Il faut encore qu’on réfléchisse à un moyen de forcer le bâtiment, sans se faire repérer, et de rassembler les outils nécessaires pour...
 
---- C’est quoi ça ? Je n’ai jamais vu un tel assemblage, à quoi ça sert ? Et l’utilisation de cette vis, sur le côté, là ? Je n’y aurais jamais pensé ! Comment ça peut tenir ?
+-- C’est quoi ça ? Je n’ai jamais vu un tel assemblage, à quoi ça sert ? Et l’utilisation de cette vis, sur le côté, là ? Je n’y aurais jamais pensé ! Comment ça peut tenir ?
 
---- Une égraline. Pratique pour traiter les essences naturelles. La vis est de mon invention. En ce qui concerne la tour, je pense que j’ai une idée, mais pour ce qui est du périmètre de sécurité, là je pense plutôt qu’il faudrait...
+-- Une égraline. Pratique pour traiter les essences naturelles. La vis est de mon invention. En ce qui concerne la tour, je pense que j’ai une idée, mais pour ce qui est du périmètre de sécurité, là je pense plutôt qu’il faudrait...
 
---- Et ce truc ? Quel drôle de matériau... brillant comme le métal, souple comme le cuir, froid comme de la glace ! Je me demande à quel point c’est résistant.
+-- Et ce truc ? Quel drôle de matériau... brillant comme le métal, souple comme le cuir, froid comme de la glace ! Je me demande à quel point c’est résistant.
 
---- Plus résistant que le meilleur alliage connu. Donc, comme je te disais, pour le périmètre de sécurité, ça serait plutôt de ton ressort. Si tu parviens à récupérer les plans dans le bureau de ton oncle, peut-être qu’on pourrait désactiver les mécanismes et...
+-- Plus résistant que le meilleur alliage connu. Donc, comme je te disais, pour le périmètre de sécurité, ça serait plutôt de ton ressort. Si tu parviens à récupérer les plans dans le bureau de ton oncle, peut-être qu’on pourrait désactiver les mécanismes et...
 
---- Qu’est-ce que c’est lourd ! Si petit pourtant... combien il y a d’engrenages là-dedans, sept, huit ? Mon Dieu, même Ghil n’a jamais conçu quelque chose d’aussi complexe... et c’est le meilleur d’entre nous !
+-- Qu’est-ce que c’est lourd ! Si petit pourtant... combien il y a d’engrenages là-dedans, sept, huit ? Mon Dieu, même Ghil n’a jamais conçu quelque chose d’aussi complexe... et c’est le meilleur d’entre nous !
 
---- Plus d’une quinzaine en fait. Kheira, est-ce que tu m’écoutes ?
+-- Plus d’une quinzaine en fait. Kheira, est-ce que tu m’écoutes ?
 
---- Hum... non, pas vraiment. C’est fascinant Tom, pourquoi tu ne m’as jamais montré tout ça ? Tu le sais pourtant, que ça me fascine !
+-- Hum... non, pas vraiment. C’est fascinant Tom, pourquoi tu ne m’as jamais montré tout ça ? Tu le sais pourtant, que ça me fascine !
 
---- Euh... parce qu’on s’est rencontré hier ? Bon, écoute, et si on se détendait un peu ? Tu as beau être charmante, tu m’empêches de réfléchir ! Tiens, attrape !
+-- Euh... parce qu’on s’est rencontré hier ? Bon, écoute, et si on se détendait un peu ? Tu as beau être charmante, tu m’empêches de réfléchir ! Tiens, attrape !
 
---- Je note quand même que je suis charmante...
+-- Je note quand même que je suis charmante...
 
 Je m’affale à ses côtés et Tom m’envoie une petite boule qui semble en verre. Cerclé dans un métal fin, gravé sur toute sa surface de caractères torsadés, l’habitacle est incrusté d’une perle mate, aux reflets irisés. Elle contient un liquide translucide, d’un bleu limpide.
 
---- Qu’est-ce donc ?
+-- Qu’est-ce donc ?
 
---- Un khô.
+-- Un khô.
 
---- Un khô ?
+-- Un khô ?
 
---- Un khô.
+-- Un khô.
 
---- Peux-tu développer, homme taciturne, ou c’est trop te demander ?
+-- Peux-tu développer, homme taciturne, ou c’est trop te demander ?
 
---- Seulement si, après ça, tu te tiens tranquille. J’ai besoin de me concentrer.
+-- Seulement si, après ça, tu te tiens tranquille. J’ai besoin de me concentrer.
 
---- Me tenir tranquille ? Pas sûre que ça vaille bien le coup.
+-- Me tenir tranquille ? Pas sûre que ça vaille bien le coup.
 
---- Tu ne le regretteras pas. Avale-le.
+-- Tu ne le regretteras pas. Avale-le.
 
---- Tiens, je n’aurais pas imaginé l’utiliser comme ça.
+-- Tiens, je n’aurais pas imaginé l’utiliser comme ça.
 
---- Bon, est-ce que tu me fais confiance ?
+-- Bon, est-ce que tu me fais confiance ?
 
---- Vaguement.
+-- Vaguement.
 
---- Alors, avale-le.
+-- Alors, avale-le.
 
---- Ça roule.
+-- Ça roule.
 
 
 Je me love sur le matelas et je gobe le khô.
@@ -202,11 +202,11 @@ C’est son sursaut qui me réveille. Aussitôt, mes sens reprennent leur servic
 
 Il me rattrape, m’explique.
 
---- Alerte invasion. Rentre chez toi au plus vite, tu ne peux pas rester bloquée ici alors que ces « choses » vont débarquer d’un instant à l’autre. File.
+-- Alerte invasion. Rentre chez toi au plus vite, tu ne peux pas rester bloquée ici alors que ces « choses » vont débarquer d’un instant à l’autre. File.
 
---- Quelle heure est-il ? Qu’est-ce qu’il s’est passé ?
+-- Quelle heure est-il ? Qu’est-ce qu’il s’est passé ?
 
---- Minuit passé. Le khô. On se retrouve demain, je t’expliquerai. Et on mettra ce plan au point.
+-- Minuit passé. Le khô. On se retrouve demain, je t’expliquerai. Et on mettra ce plan au point.
 
 Et il me pousse vers la porte, le goujat.
 

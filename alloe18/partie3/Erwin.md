@@ -35,17 +35,17 @@ Les enseignements de son maître, Shaya, lui reviennent alors en mémoire, avec 
 
 Cette perception incite Erwin à appeler à haute voix :
 
---- Ne craignez rien ! Vous pouvez vous approcher, je ne vous ferai aucun mal.
+-- Ne craignez rien ! Vous pouvez vous approcher, je ne vous ferai aucun mal.
 
 Il constate que sa voix n’est pas très assurée, un peu tremblotante même. Il se reprend et retente :
 
---- Vous pouvez approcher en toute sécurité, je ne suis qu’un simple pèlerin.
+-- Vous pouvez approcher en toute sécurité, je ne suis qu’un simple pèlerin.
 
 Cette fois, une vague plus intense de frayeur lui parvient ; l’inconnu, qui a tout fait pour rester silencieux, doit être terrifié d’avoir été repéré.
 
 Erwin tente une nouvelle approche :
 
---- Vous devez être trempé et avoir faim. En plus d’un bon feu, je peux vous proposer une grande tranche de pain. J’ai également de la bière...
+-- Vous devez être trempé et avoir faim. En plus d’un bon feu, je peux vous proposer une grande tranche de pain. J’ai également de la bière...
 
 Une hésitation rassurante émane du sous-bois totalement impénétrable. L’autre le voit certainement de sa position, et l’allure dégingandée, plutôt avenante du jeune homme, doit plaider pour lui et persuader de sa franchise, de son honnêteté.
 
@@ -53,23 +53,23 @@ Erwin voit enfin une silhouette apparaître entre deux grands arbres. Elle est r
 
 Le jeune homme se lève pour faire face à son visiteur et, afin de lui montrer qu’il n’a pas de mauvaises intentions, ouvre les bras dans l’attitude du prêtre au moment de la célébration de l’Eucharistie, les mains vides, ouvertes, dirigées vers le ciel.
 
---- Approchez, je vous en prie. Nous serons mieux à deux pour passer la nuit ici.
+-- Approchez, je vous en prie. Nous serons mieux à deux pour passer la nuit ici.
 
 L’inconnu n’est pas très grand, surtout à côté d’Erwin qui doit approcher 1 m 80.
 
 Arrivé dans le halo du feu de camp, ses mains, plutôt fines, se lèvent pour rabattre sa capuche, et laisser découvrir à son hôte interloqué une longue chevelure brune, ondulée ; une femme... une très belle femme !
 
---- Je vous remercie beaucoup, lui dit-elle d’une voix chaude, troublante.
+-- Je vous remercie beaucoup, lui dit-elle d’une voix chaude, troublante.
 
---- Je vous en prie. Il est normal que deux voyageurs s’entraident.
+-- Je vous en prie. Il est normal que deux voyageurs s’entraident.
 
---- Normal, certes, mais extrêmement rare. Les chemins sont tellement incertains que cette attitude peut être périlleuse. Vous ne pouviez pas savoir qui se cachait dans l’ombre de la nuit.
+-- Normal, certes, mais extrêmement rare. Les chemins sont tellement incertains que cette attitude peut être périlleuse. Vous ne pouviez pas savoir qui se cachait dans l’ombre de la nuit.
 
---- Non, mais j’avais la certitude que vous ne représentiez pas une menace. J’ai bien fait.
+-- Non, mais j’avais la certitude que vous ne représentiez pas une menace. J’ai bien fait.
 
---- Je bénis votre certitude, qui va me permettre de me réchauffer.
+-- Je bénis votre certitude, qui va me permettre de me réchauffer.
 
---- Et de manger un morceau, complète Erwin qui lui présente le restant de la miche de pain qui se trouvait dans sa besace.
+-- Et de manger un morceau, complète Erwin qui lui présente le restant de la miche de pain qui se trouvait dans sa besace.
 
 La femme dégrafe lentement sa cape, pour l’ôter et la déposer près du feu.
 
@@ -77,15 +77,15 @@ Erwin découvre alors des formes voluptueuses couvertes par des habits d’homme
 
 L’inconnue se saisit de sa dague portée à la ceinture, en tendant vers le jeune homme sa main gauche, pour prendre le pain qu’il lui propose. Elle en découpe une fine tranche, range son couteau, rend la miche à Erwin, et s’assoit à son côté, face au feu.
 
---- Merci encore, lui lance-t-elle en le regardant de ses grands yeux vert émeraude.
+-- Merci encore, lui lance-t-elle en le regardant de ses grands yeux vert émeraude.
 
---- Ce n’est rien, vous sembliez avoir besoin de repos et de nourriture.
+-- Ce n’est rien, vous sembliez avoir besoin de repos et de nourriture.
 
---- Puis-je vous poser une question ?
+-- Puis-je vous poser une question ?
 
---- Allez-y. Je vous répondrai si je le peux.
+-- Allez-y. Je vous répondrai si je le peux.
 
---- D’où vous venait cette certitude que je n’étais pas une menace ?
+-- D’où vous venait cette certitude que je n’étais pas une menace ?
 
 Erwin la regarde et ressent aussitôt un trouble l’envahir. Cette femme, un peu plus âgée que lui-même, qui paraît si fragile malgré les armes qu’elle porte, dont la peau très blanche démontre qu’elle n’est certainement pas d’origine paysanne, mais qui voyage seule, sans escorte, sans protection, ne peut être définie par aucune des catégories de personnes qu’il a rencontrées jusqu’alors.
 
@@ -95,41 +95,41 @@ Sa première impression a été positive ; il continuera donc sur cette voie.
 
 Il décide alors qu’il peut lui parler de son maître Shaya, qui lui enseigne, depuis bientôt une année, une technique de méditation, le keito.
 
---- Je commence seulement à percevoir la présence des autres, mais j’avoue avoir particulièrement bien capté la vôtre. Vous m’êtes apparue un peu perdue et c’est la raison qui m’a poussé à vous proposer de venir me rejoindre.
+-- Je commence seulement à percevoir la présence des autres, mais j’avoue avoir particulièrement bien capté la vôtre. Vous m’êtes apparue un peu perdue et c’est la raison qui m’a poussé à vous proposer de venir me rejoindre.
 
---- Vous êtes une sorte de magicien... de sorcier.
+-- Vous êtes une sorte de magicien... de sorcier.
 
---- Pas du tout. Je n’ai aucun pouvoir hormis celui-ci, si je peux parler de pouvoir, pour ce qui n’est qu’une sensibilité particulière acquise par l’entraînement à la méditation.
+-- Pas du tout. Je n’ai aucun pouvoir hormis celui-ci, si je peux parler de pouvoir, pour ce qui n’est qu’une sensibilité particulière acquise par l’entraînement à la méditation.
 
---- Et vous rejoignez votre maître pour qu’il poursuive son enseignement.
+-- Et vous rejoignez votre maître pour qu’il poursuive son enseignement.
 
---- C’est tout à fait cela. Je dois la rejoindre dans une auberge de Sidhr, la prochaine ville sur ma route.
+-- C’est tout à fait cela. Je dois la rejoindre dans une auberge de Sidhr, la prochaine ville sur ma route.
 
---- Sidhr ! C’est justement là que je me rends pour y retrouver ma sœur.
+-- Sidhr ! C’est justement là que je me rends pour y retrouver ma sœur.
 
---- C’est merveilleux ! Si vous le désirez, nous pourrons faire la route de conserve.
+-- C’est merveilleux ! Si vous le désirez, nous pourrons faire la route de conserve.
 
---- Je n’osais pas vous le demander. Finir mon voyage en votre compagnie me le rendra plus sûr et plus léger.
+-- Je n’osais pas vous le demander. Finir mon voyage en votre compagnie me le rendra plus sûr et plus léger.
 
---- Je m’appelle Erwin. Si nous devons reprendre la route ensemble, puis-je vous demander votre nom ?
+-- Je m’appelle Erwin. Si nous devons reprendre la route ensemble, puis-je vous demander votre nom ?
 
---- Il est tout à fait normal que vous le connaissiez ; je me nomme Ayash.
+-- Il est tout à fait normal que vous le connaissiez ; je me nomme Ayash.
 
 En disant cela, elle se penche vers le feu, tendant ses mains pour les réchauffer. Ce geste anodin provoque l’ouverture plus accentuée du haut de sa chemise dont le cordon n’a pas été tiré. Le jeune homme, décontenancé, ne peut qu’entrapercevoir un sillon paramammaire de neige, laissant deviner un environnement ô combien porteur d’images... imaginations...
 
 Ayash n’a pas manqué le rapide regard de son nouveau compagnon de route, mais ne semble pas du tout gênée par ce rappel à son sexe ni contrariée par le négligé de sa tenue qui l’a permis. Au contraire, elle le regarde dans les yeux en lui adressant un large sourire.
 
---- Ne serait-il pas temps d’essayer de dormir ? murmure-t-elle en réfrénant une irrésistible envie de bâiller.
+-- Ne serait-il pas temps d’essayer de dormir ? murmure-t-elle en réfrénant une irrésistible envie de bâiller.
 
---- Vous avez raison, nous avons besoin tous deux de repos. Je vais aller chercher des branches pour vous confectionner de quoi dormir paisiblement.
+-- Vous avez raison, nous avons besoin tous deux de repos. Je vais aller chercher des branches pour vous confectionner de quoi dormir paisiblement.
 
---- Vous n’avez pas besoin de vous mettre en peine pour moi.
+-- Vous n’avez pas besoin de vous mettre en peine pour moi.
 
---- Vous n’allez pas vous allonger à même ce sol rocailleux.
+-- Vous n’allez pas vous allonger à même ce sol rocailleux.
 
---- Je vois que vous vous êtes préparé une couche qui pourrait m’accueillir, si je me fais petite et si vous n’y voyez aucun inconvénient.
+-- Je vois que vous vous êtes préparé une couche qui pourrait m’accueillir, si je me fais petite et si vous n’y voyez aucun inconvénient.
 
---- Au contraire. De plus, la chaleur de nos corps nous permettra de ne pas trop souffrir du froid matinal, lorsque le feu de camp se sera éteint.
+-- Au contraire. De plus, la chaleur de nos corps nous permettra de ne pas trop souffrir du froid matinal, lorsque le feu de camp se sera éteint.
 
 Après avoir retiré ses brodequins, Erwin s’allonge alors sur son lit de branchages, face à la forêt, et se couvre de sa cape, sèche à présent. Suivant son mouvement, la jeune femme, se déchausse, détache son épée pour la poser près d’elle, et se couche derrière Erwin, contre lui, dos à la paroi rocheuse.
 

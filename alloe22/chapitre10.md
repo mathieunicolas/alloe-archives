@@ -14,42 +14,42 @@ Une fois qu’elle aurait trouvé les toilettes, peut-être pourrait-elle y fair
 
 C’était décidé, elle irait se chercher des chocolats à Dalloyau ! Après tout, elle en avait le temps. Elle se redressa donc, et s’éloigna du panneau d’affichage en quête d’un guichet, d’un employé ou même d’un autocollant pour lui indiquer les cabinets. Comme elle faisait quelques pas entre les quais de gare, cherchant à éviter le flot des nouveaux arrivés, un homme vint droit sur elle et lui sourit. Elle aurait été incapable de lui donner un âge, mais il avait l’air sympathique, alors elle lui rendit son sourire, et comme elle passait près de lui, il lui posa la main sur l’épaule. Ce ne fût qu’alors qu’Olga se rendit compte qu’il devait y avoir méprise. 
 
---- Bonjour ? Vous êtes bien Françoise ?
+-- Bonjour ? Vous êtes bien Françoise ?
 
 Derrière eux, un pianiste amateur s’essaya à jouer le refrain d’une vieille chanson de Rupert Holmes... If you like Pina Coladas and getting caught in the rain... If you're not into yoga, if you have half a brain... Olga sourit de plus belle.
 
---- Je crains que vous ne vous soyez trompé.
+-- Je crains que vous ne vous soyez trompé.
 
 Il s’empressa de retirer sa main, comme si un scorpion avait fait frétiller son dard sur l’épaule d’Olga, les joues empourprées.
 
---- Mille excuses. Je ne voulais pas vous importuner. Bonne journée, madame.
+-- Mille excuses. Je ne voulais pas vous importuner. Bonne journée, madame.
 
 Et il déguerpit tout aussi vite vers le centre de la gare, probablement aiguillonné par la gêne, et le désir de retrouver la fameuse Françoise - qui sait, peut-être aimait-elle la piña colada ? Bien qu’elle n’ait guère apprécié que l’inconnu la saisisse de façon si cavalière, Olga ne put réprimer un petit rire amusé tout en lissant son manteau écarlate, ses petits talons claquant sur le revêtement. Mais elle eut beau aller et venir le nez en l’air, elle ne trouva pas la moindre indication. La gare étirait son long squelette ajouré, les nuages s'amoncelaient bien au-delà des vitres, et Olga dut se rendre à l’évidence. Elle avait trouvé cinq sortes de restaurants différents, une boutique qui vendait du thé - et qui embaumait l’allée par la même occasion - et même un Parfois qui exposait ses sacs en équilibre sur autant de comptoirs bariolés. Mais aucune trace des toilettes. 
 
 Elle se tourna donc vers la première personne qu’elle eut sous les yeux et qui se détachait un peu de la foule, un jeune homme qui lui semblait tout juste sorti de l’adolescence, dont les baskets couinaient sur le linoleum.
 
---- Excusez-moi, jeune homme ? L’apostropha-t-elle en levant un doigt manucuré.
+-- Excusez-moi, jeune homme ? L’apostropha-t-elle en levant un doigt manucuré.
 
 Il leva les yeux vers elle et elle sentit aussitôt qu’elle l’avait dérangé. Maintenant qu’elle l’examinait de plus près, il lui semblait plus vieux, il y avait une certaine usure dans son regard, comme s’il manquait de sommeil. Il la détailla aussi, puis fronça ses sourcils épais, se demandant probablement ce qu’une femme de son âge pouvait bien lui vouloir. Olga n’avait pas de petits enfants, mais si elle en avait eu, ils auraient dû se trouver dans les âges de ce petit jeune, pressés par l’université et le petit boulot qu’ils avaient eu tant de mal à décrocher.
 
---- Oui ? Je peux vous aider ?
+-- Oui ? Je peux vous aider ?
 
 Il avait une voix grave, qui aurait pu être jolie si elle n’était pas aussi éraillée par la fatigue latente. Elle voyait bien qu’il faisait un effort pour se montrer poli - il n’avait rien contre elle, si ce n’était qu’elle l’avait dérangé dans sa routine... ou son chaos, et qu’il avait d’autres choses à gérer qu’une vieille dame égarée.
 
---- Pouvez-vous m’indiquer les toilettes, je vous prie ?
+-- Pouvez-vous m’indiquer les toilettes, je vous prie ?
 
 Il sortit une main de la poche de son sweat et lui pointa l’un des escalators :
 
---- Descendez au niveau -1. Vers les accès métro. Ça s’appelle touzelou.
+-- Descendez au niveau -1. Vers les accès métro. Ça s’appelle touzelou.
 
---- Touze... 
+-- Touze... 
 
---- Touzelou. C’est de l’anglais, ça s’écrit... euh laissez tomber. Les accès métro ? Vous voyez où c’est ? Vous pouvez pas le rater, ils ont mis des consignes lumineuses.
+-- Touzelou. C’est de l’anglais, ça s’écrit... euh laissez tomber. Les accès métro ? Vous voyez où c’est ? Vous pouvez pas le rater, ils ont mis des consignes lumineuses.
 
 To the loo, devina Olga en ravalant un rictus. Evidemment, le franglais a encore frappé.
 
---- Je trouverai bien. Merci. Passez une bonne journée.
+-- Je trouverai bien. Merci. Passez une bonne journée.
 
---- À vous aussi, répondit-il en s’en allant.
+-- À vous aussi, répondit-il en s’en allant.
 
 Olga partit donc en direction des escalators, sur lesquels montaient et descendaient des passagers, comme autant de cavaliers de carrousel et se laissa porter au niveau -1, tout en rêvassant à sa pâtisserie. 

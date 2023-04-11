@@ -22,11 +22,11 @@ Un peu ébranlé, il rejoint son point d’observation au milieu de la foule. 15
 ⁂
 Soudain une idée fulgurante l’arrache à ses images et tout se calme en lui. Jacques vient de comprendre qu’il s’est peut-être trompé de gare. Il compose le numéro de Françoise. En l’imaginant au milieu des voyageurs scrutant les alentours déçue elle aussi de ce rendez-vous manqué, il presse le pas. Pas de réponse. Le téléphone sonne dans le vide. Est-elle vexée et se venge-t-elle en ne répondant pas à son appel ? Est-ce elle qui a décidé de ne pas honorer leur rencontre ? Jacques devient nerveux. Il n’aime pas l’imprévu et toutes les questions qu’il amène. Il se rend compte que sa respiration devient saccadée, il ralentit le pas et relève la tête. En face de lui, un manteau rouge. Trois pas le sépare de Françoise, il en est sûr, c’est elle. Deux manteaux rouge écarlate en si peu de temps, non. C’est elle. 
 
---- Françoise ? 
+-- Françoise ? 
 
 La femme se retourne. D’un geste au ralenti sa chevelure en mouvement découvre un visage beau, expressif et peu maquillé. Il se dit à cet instant qu’elle ne fait pas la soixantaine et cela l’excite. Elle s’arrête, attend qu’il atteigne une distance respectable et lui répond.
 
---- Bonjour Jacques. c’est bien vous ? 
+-- Bonjour Jacques. c’est bien vous ? 
 
 Instantanément la tension se relâche. Enfin ils se retrouvent. Jacques sent rapidement son assurance lui redonner confiance. Il l’invite donc à boire un café dans une petite brasserie pas trop fréquentée à cette heure. Il est déjà 15h30, une heure qu’ils se cherchaient. Enfin réunis, ils se permettent un sourire. La sensation d’une complicité partagée lors de leurs échanges téléphoniques réapparaît à l’instant même où ils s’assoient à une petite table retirée des regards. Installés face à face, ils prennent le temps de se détailler. Rassurés par l’apparence de l’autre, ils se décident enfin à commander un café. Les mots les rapprochent et la discussion reprend tout naturellement comme s’ils n’avaient jamais raccroché le téléphone, interrompus un instant par le serveur qui dépose les cafés. 
 
@@ -38,7 +38,7 @@ Jacques a l’impression qu’une éternité s’est écoulée depuis qu’ils s
 
 Le manteau rouge se lève, semble s’éloigner mais revient se planter dans les yeux de Jacques. 
 
---- Au revoir Jack. Je ne suis pas Françoise. On m’appelle Jacky. C’est drôle Jack et Jacky, n’est ce pas Jacques ?
+-- Au revoir Jack. Je ne suis pas Françoise. On m’appelle Jacky. C’est drôle Jack et Jacky, n’est ce pas Jacques ?
 
 Il n’aime vraiment pas son sourire. Il se voit encore une fois dans un miroir. Mais le reflet renvoyé ne lui plaît pas. Il se voit lui, quand il rentre  après avoir massacré une jeune fille. Il prend toujours une douche. Son visage passe toujours devant la glace de la salle de bain. Et le regard qu’il y voit est maintenant devant lui. Ce regard sensuel, arrogant, violent. Une pulsion sexuelle le traverse une dernière fois et avant de s’écrouler face sur la table, il se dit que le café avait finalement un goût bizarre.
 

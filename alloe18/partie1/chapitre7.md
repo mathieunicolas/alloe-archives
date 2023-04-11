@@ -4,11 +4,11 @@ auteur: Marie-Paule Bonnart alias Harnou
 (tonneaux)
 Dans un autre village, au même moment, l’ambiance est toute autre.
 
---- Allez, remets-nous ça et pas de faux cols, hein !
+-- Allez, remets-nous ça et pas de faux cols, hein !
 
 Un grand gaillard à la barbe rousse et à la panse rebondie vient de se lever du banc, une pinte de bière vide à la main. Son regard pétillant et son sourire coquin interpellent Marie, la serveuse.
 
---- J’arrive, attends un peu, y a pas que toi qui as soif.
+-- J’arrive, attends un peu, y a pas que toi qui as soif.
 
 Marie, jolie brunette d’une trentaine d’années ne s’en laisse pas conter. Sous son joli minois, on découvre un caractère bien trempé qui remet à leur place les clients trop hardis.
 
@@ -42,7 +42,7 @@ Gilbert un peu gêné comme de coutume, toussote pour essayer de donner le chang
 
 D’une voix qui se veut rieuse, il commence son allocution.
 
---- Mes chers, mes très chers amis, quel bonheur d’être ici ce soir avec vous pour notre grande et belle fête de l’automne. Quel plaisir de vous voir tous réunis sur notre place du village pour assister à la traditionnelle remise de cadeau de notre aîné à notre benjamin ! Merci d’être présents et de participer activement à la vie de notre beau village. Quand les Arcanis, nos protecteurs, m’ont désigné comme maire, je dois dire que j’ai été surpris et me suis demandé pourquoi ils m’avaient choisi. Je ne suis qu’un homme ordinaire après tout. Mais aujourd’hui, je peux vous dire que je suis fier d’être votre maire, car vous êtes des gens formidables. Je voudrais aussi rendre un hommage à la Machine, notre Mémère, comme l’ont surnommée affectueusement les six ouvriers qui veillent à sa maintenance. Elle est le cœur de notre village, n’oublions jamais que c’est grâce à elle que nous respirons. Nous avons le devoir de la respecter et d’obéir aux consignes des Arcanis pour que longtemps, très longtemps vive notre village sous leur protection bienveillante. Maintenant, je lève mon verre à la fête. Merci.
+-- Mes chers, mes très chers amis, quel bonheur d’être ici ce soir avec vous pour notre grande et belle fête de l’automne. Quel plaisir de vous voir tous réunis sur notre place du village pour assister à la traditionnelle remise de cadeau de notre aîné à notre benjamin ! Merci d’être présents et de participer activement à la vie de notre beau village. Quand les Arcanis, nos protecteurs, m’ont désigné comme maire, je dois dire que j’ai été surpris et me suis demandé pourquoi ils m’avaient choisi. Je ne suis qu’un homme ordinaire après tout. Mais aujourd’hui, je peux vous dire que je suis fier d’être votre maire, car vous êtes des gens formidables. Je voudrais aussi rendre un hommage à la Machine, notre Mémère, comme l’ont surnommée affectueusement les six ouvriers qui veillent à sa maintenance. Elle est le cœur de notre village, n’oublions jamais que c’est grâce à elle que nous respirons. Nous avons le devoir de la respecter et d’obéir aux consignes des Arcanis pour que longtemps, très longtemps vive notre village sous leur protection bienveillante. Maintenant, je lève mon verre à la fête. Merci.
 
 Sous les applaudissements, Gilbert, souriant, semble satisfait de sa prestation. Il rejoint un petit groupe de gens de confiance qu’il appelle son cercle de décision. Une sorte de conseil municipal auquel il se réfère pour gérer les questions et événements plus délicats. Jusqu’à présent, rien de grave ne s’est passé dans le village, mais Gilbert Gil’ est un homme prudent, qui aime être conseillé et prête une oreille attentive à ceux qu’il a choisis pour composer son cercle de décision. Il pense que, si un homme seul a le pouvoir de décider de tout, il risque vite de glisser dans le despotisme et Gilbert est tout le contraire d’un despote.
 
@@ -60,15 +60,15 @@ Sortir oui. Ils ont déjà souvent réfléchi à comment franchir le haut mur d�
 
 Marie est en réflexion.
 
---- OK ! On va encore chercher et on trouvera bien comment profiter de la sortie des Arcanis.
+-- OK ! On va encore chercher et on trouvera bien comment profiter de la sortie des Arcanis.
 
 Édouard, un du groupe, amoureux discret de Marie intervient :
 
---- OK ! Pour sortir c’est peut-être possible, mais imaginons que l’air soit irrespirable et que nous étouffions jusqu’à la mort. Et puis, les Arcanis ont des pouvoirs magiques, ils auront vite fait de nous neutraliser. Enfin, je veux dire que...
+-- OK ! Pour sortir c’est peut-être possible, mais imaginons que l’air soit irrespirable et que nous étouffions jusqu’à la mort. Et puis, les Arcanis ont des pouvoirs magiques, ils auront vite fait de nous neutraliser. Enfin, je veux dire que...
 
---- Tu veux dire que tu as la trouille et que tu crois à toutes ces balivernes dans lesquelles nous avons été bercés depuis toujours. Eh bien, rejoins le maire et son cercle de décision. Là, tu seras à ta place.
+-- Tu veux dire que tu as la trouille et que tu crois à toutes ces balivernes dans lesquelles nous avons été bercés depuis toujours. Eh bien, rejoins le maire et son cercle de décision. Là, tu seras à ta place.
 
---- Ne le prends pas comme ça, Marie, je veux juste dire qu’il faut être très prudent et nous devons encore travailler à la confection des masques qui pourraient, je l’espère, nous protéger de l’air vicié. Cette nuit, je dois absolument m’approcher de la machine pour continuer à étudier son principe de décontamination de l’air. Si j’arrive à le miniaturiser, nous aurons peut-être une chance de passer le mur et de survivre dehors.
+-- Ne le prends pas comme ça, Marie, je veux juste dire qu’il faut être très prudent et nous devons encore travailler à la confection des masques qui pourraient, je l’espère, nous protéger de l’air vicié. Cette nuit, je dois absolument m’approcher de la machine pour continuer à étudier son principe de décontamination de l’air. Si j’arrive à le miniaturiser, nous aurons peut-être une chance de passer le mur et de survivre dehors.
 
 Sur ces dernières paroles, le groupe décide de se séparer et regagne la fête que quelques irréductibles continuent d’arroser malgré l’heure tardive.
 
@@ -78,7 +78,7 @@ Un peu plus loin, Bernett, la femme du maire, soutient le doyen au cadeau pour l
 
 Le grand gaillard à la barbe rousse, qui contient plus d’un fût dans sa grande carcasse, s’approche du maire et l’interpelle en lui envoyant quelques postillons mêlés à une éructation grossière qui confirme son trop-plein de bière.
 
---- Dis, Gilbert, toi qui es le maire depuis si longtemps, depuis trop longtemps, tu ne penses pas qu’il faudrait laisser ta place à un gars comme moi. Hein ! dis-moi.
+-- Dis, Gilbert, toi qui es le maire depuis si longtemps, depuis trop longtemps, tu ne penses pas qu’il faudrait laisser ta place à un gars comme moi. Hein ! dis-moi.
 
 Ce qui sont autour d’eux se mettent à rire, mais le colosse à la barbe rousse voit rouge et d’un geste vif soulève la grosse table de bois emportant par là-même les nombreuses pintes de bière qui ruissellent à présent sur le pavé de l’auberge. D’un bond, le rouquin empoigne le maire appliquant ses gros doigts boudinés sur la gorge de ce dernier. Il ne faut pas moins de cinq hommes pour lui faire lâcher prise et le maîtriser. Marie arrive et lui jette au visage un seau d’eau glacé. L’homme suffoque un instant, puis revient à lui, l’air penaud d’un enfant qui a fait une bêtise. Il balbutie quelques excuses dans sa barbe et décide de rentrer se coucher dans une démarche titubante.
 
