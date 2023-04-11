@@ -2,7 +2,7 @@
 auteur: Michelessi
 ---
 (réparation)
-![image](../machine.png)
+![image](../machine.png){ width="200" }
 
 --- KHEIRA !
 
