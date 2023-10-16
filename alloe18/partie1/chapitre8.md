@@ -1,7 +1,7 @@
 ---
 auteur: Élisabeth
 ---
-(rouages)
+![image](../rouages.png)
 
 Alice observe la scène depuis le petit vasistas de la bibliothèque, juchée sur un escabeau qui lui sert à sortir de l’oubli les livres rares qui sont relégués sur la planche la plus haute de l’étagère et qui serait mangée par la crasse si elle ne la débarrassait pas, régulièrement, de ses toiles d’araignées et autres crottes de rats.
 

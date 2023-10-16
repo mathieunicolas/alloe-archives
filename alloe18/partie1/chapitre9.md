@@ -1,7 +1,7 @@
 ---
 auteur: Lise Audoin
 ---
-(reparation)
+![image](../reparation.png)
 
 Ce matin-là, Robert se réveilla plus épuisé qu’il ne s’était couché. Le maire du village d’Arhane venait de passer une nuit d’épouvante. Un déferlement de grondements, de fureur, de vagissements et de cris s’était abattu sur le village, semant l’effroi au creux des lits. Dieu merci, les villageois n’avaient rien vu, s’étant barricadés dès que leur système d’alarme et de défense s’était mis en branle. Mais le matin, lorsque sa femme Brigit voulut aller chercher du pain à la boulangerie, elle remonta les escaliers plus vite qu’elle n’était descendue, en hurlant :
 

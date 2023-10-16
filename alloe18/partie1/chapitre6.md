@@ -1,7 +1,8 @@
 ---
 auteur: Juliette Vasseur
 ---
-(tonneaux)
+![image](../tonneaux.png)
+
 Je sors du bâtiment.
 
 Les mots de mon oncle résonnent encore en moi, tandis que je respire à pleins poumons l’air frais du petit matin : « Déception... et si ta mère... il en découle de ta responsabilité... place au sein du village... pas convenable pour une jeune fille... et tes espoirs d’être acceptée par le cercle... et moi dans tout ça... »

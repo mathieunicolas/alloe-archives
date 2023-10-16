@@ -1,7 +1,7 @@
 ---
 auteur: Julie
 ---
-(machine)
+![image](../machine.png)
 
 Arrivée au repère de Tom, à son grand étonnement celui-ci n’y était pas. Kheira en profita pour revoir le plan. Il était simple, mais devait être efficace. Pour aller chercher la substance produite par la machine, ils devaient se faufiler jusqu’à l’extrémité nord du village. Là-bas se vident les égouts du bâtiment qui abrite cette grosse Mémère. Elle eut un petit sourire en coin, cela lui plaisait de la nommer comme les ouvriers. Kheira avait alors l’impression d’appartenir à leur famille, d’être une des leurs. Une fois arrivés, ils n’auraient alors plus qu’à remonter par les canalisations pour pénétrer dans le bâtiment et atteindre leur but. Tom lui avait dit qu’un seul échantillon de la substance serait suffisant, mais ce qui l’intéressait au fond, c’était de pouvoir approcher quelques instants la machine et observer son mécanisme. Elle n’avait jamais pu voir cette grande bâtisse que de l’extérieur et il était de plus en plus difficile pour elle de le supporter.
 

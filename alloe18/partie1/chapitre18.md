@@ -1,7 +1,7 @@
 ---
 auteur: Mathieu
 ---
-(rouages)
+![image](../rouages.png)
 
 -- Carl, dépêche-toi d’amener les rouleaux !
 

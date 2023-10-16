@@ -1,8 +1,7 @@
 ---
 auteur: Michelessi
 ---
-(réparation)
-![image](../machine.png)
+![image](../reparation.png)
 
 -- KHEIRA !
 

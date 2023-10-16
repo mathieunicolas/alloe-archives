@@ -1,7 +1,8 @@
 ---
 auteur: Marie-Paule Bonnart alias Harnou
 ---
-(tonneaux)
+![image](../tonneaux.png)
+
 Dans un autre village, au même moment, l’ambiance est toute autre.
 
 -- Allez, remets-nous ça et pas de faux cols, hein !

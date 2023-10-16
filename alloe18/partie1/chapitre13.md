@@ -1,7 +1,7 @@
 ---
 auteur: Héloïse Abellan
 ---
-(rouages)
+![image](../rouages.png)
 
 Courir, courir, c’est tout. Courir vers où ? Courir vers quoi ? S’enfuir... non. Comprendre. Le silence de la nuit, les bruits de ses pas. Kheira se concentrait sur eux. Fermer les yeux et courir. Les pensées fusaient, se bousculaient.
 

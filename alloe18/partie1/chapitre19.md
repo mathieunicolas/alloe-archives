@@ -1,7 +1,7 @@
 ---
 auteur: Mathieu
 ---
-(pommier)
+![image](../pommier.png)
 
 -- Il n’est pas seul ! s’écria Brigit. Qu’est-ce que ça veut dire tout ça ?
 

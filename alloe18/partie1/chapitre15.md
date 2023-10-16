@@ -2,7 +2,7 @@
 auteur: Gaelle Kermen
 title: l'Insoumise
 ---
-(pommier)
+![image](../pommier.png)
 
 Au matin, sur sa banquette dure, Kheira se réveille en sursaut avec des questions obsédantes en tête : pourquoi leur interdit-on de sortir de la cité ? Qu’est-ce qu’il y a dehors de si dangereux qu’on ne puisse l’affronter en réalité ? Pourquoi les Arcanis apportent-ils plusieurs fois par semaine des vivres aux habitants qu’ils ne peuvent pas produire eux-mêmes pour se suffire ? Pourquoi l’échange se fait-il avec la substance extraite de la machine ? Pourquoi n’a-t-on pas le droit d’approcher la Machine et de voir ce qu’elle produit ? Pourquoi ? Pourquoi ? Pourquoi ?
 

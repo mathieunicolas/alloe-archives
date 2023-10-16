@@ -1,7 +1,7 @@
 ---
 auteur: Marie Léa
 ---
-(puits)
+![image](../puits.png)
 
 Si la journée s’était déroulée comme à l’accoutumée dans le village, les habitants furent surpris dans leurs tâches quotidiennes quand le cor s’était fait entendre alors que la nuit tombait. L’émulation habituelle s’était éteinte, chacun se tournait vers les portes du village. Anxieux, les habitants comptent les rugissements de l’alarme. Après trois coups, le message est clair : la nuit amène avec elle la menace de vagabonds malintentionnés.
 

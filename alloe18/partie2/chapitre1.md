@@ -1,7 +1,7 @@
 ---
 auteur: David Ruiz Martin
 ---
-(puits)
+![image](../puits.png)
 
 L’aîné, Tan, se balance sur sa chaise, ses pieds bottés nonchalamment posés sur une table. La boue qu’il a ramassée en dehors des hautes murailles, si liquide qu’elle coule sur le cuir, dégouline de ses semelles pour s’écraser sur la table, dans un bruit de succion humide répugnant. Il se permet cette impolitesse, un sourire cruel lui ourlant les lèvres, alors qu’il contemple ces stupides rebuts d’humanité, ces hommes et femmes qui courent en tous sens, leurs yeux craintivement tournés vers la cloche et la Machine, avec une flamme de superstition au fond du regard. Cette bande d’arriérés mérite ce qui va lui arriver.
 

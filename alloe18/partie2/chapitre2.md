@@ -1,7 +1,7 @@
 ---
 auteur: Lou Pavilla
 ---
-(puits)
+![image](../puits.png)
 
 Le bruit de l’alarme du village se fit entendre, indiquant aux habitants qu’ils peuvent se hâter de rentrer chez eux afin de s’y barricader. Comme chaque jour sans exception depuis environ cent ans. Synchronisé selon le développement de leurs technologies. Les villageois ont appris à vivre au rythme de l’extraction de la substance toxique de l’air. Nul n’a le droit de déroger des règles strictes du village installé par les Arcanis. Chaque jour, les villageois voient cette affiche « Déroge aux règles et tu perds 24 heures de ta vie ».
 

@@ -1,7 +1,7 @@
 ---
 auteur: Philippe Auffret
 ---
-(pommier)
+![image](../pommier.png)
 
 Tourner en rond ! Tourner en rond !
 

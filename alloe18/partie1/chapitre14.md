@@ -1,7 +1,7 @@
 ---
 auteur: Daniel Marleau
 ---
-(pommier)
+![image](../pommier.png)
 
 À quelques lieues de là, après une marche lente tout près de sa petite maison, Tom se retourne vers les villageois, juste avant d’entrer chez lui. Il les salue de la main tout faiblement. Il a l’air désenchanté ; l’air d’un homme qui a perdu toute son énergie.
 

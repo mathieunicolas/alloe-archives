@@ -1,7 +1,8 @@
 ---
 auteur: Alex N.R
 ---
-(rouages)
+![image](../rouages.png)
+
 -- Je ne m’attendais pas à ça venant de toi Kheira. Tu devrais le savoir mieux que personne qu’il est interdit de s’approcher de la machine... à force de brûler les étapes, tu risques de tout perdre. Je sais que ce n’est pas ce que tu souhaites. N’est-ce pas ? Kheira ? Bon... si tu le prends de cette manière...
 
 Je vois mon oncle, à la fois agacé et déçu, me tourner le dos et repartir d’un pas rapide. Il ne me comprend pas et je pense qu’il ne pourra jamais me comprendre. 24 h dans cette prison... ce n’est pas d’être enfermée ici qui me gêne, mais c’est de ne pas pouvoir avancer sur mes projets et Dieu sait combien ils sont nombreux...

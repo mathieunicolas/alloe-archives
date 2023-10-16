@@ -2,7 +2,7 @@
 auteur: Sytoun
 title: Anxieux Marcheurs
 ---
-(pommier)
+![image](../pommier.png)
 
 Yeux rivés vers le ciel, s’en remettant à Dieu, les villageois sortent de leur terre natale. C’est pour eux la première fois. Ce n’est pas chose facile, car de ce qu’ils peuvent retrouver au dehors, que leur est-il familier ? Aucune survie ne leur est garantie. Aller à la découverte de l’inconnu est vécu comme passionnant par un aventurier, mais eux n’en sont pas, là est le problème. Au contraire, ils désobéissent. Ils vont à l’encontre des règles. Et ils ne sont pas prêts. Se soumettre à l’autorité n’est pas leur fort, mais... les Arcanis sont leurs créateurs, quand même. Serrés les uns aux autres, mais prêts à se disperser dans tous les sens face à une quelconque menace, la courageuse expédition avance.
 

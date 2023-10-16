@@ -1,7 +1,8 @@
 ---
 auteur: hannef
 ---
-(réparation)
+![image](../reparation.png)
+
 J’attends, les yeux rivés sur la ligne bleue de l’horizon qui délimite notre village du néant. Comme toutes les fois où je veux m’isoler ou observer ce monde qui me reste inconnu, je suis perchée dans mon « Arbre ». Je suis très fière de mon poste d’observation. L’Arbre, je l’ai construit moi-même. J’ai trouvé à la bibliothèque du village un livre qui représentait toutes sortes d’images de forêt comme on en trouvait avant la catastrophe. J’avais tellement envie de retrouver cette grande silhouette de bois surmontée de branches, de feuilles et parfois de fleurs, j’en rêvais et un jour l’image m’est apparue. J’ai récupéré le seul poteau qui avait survécu à la catastrophe et en me servant de tout ce que j’avais appris dans les livres et de tous les matériaux à ma disposition, j’ai reproduit mon Arbre. Je l’appelle Arbre du reste. La seule chose que je n’aie pas pu ajouter dans l’Arbre ce sont les oiseaux. Il n’y en a plus depuis longtemps chez nous. Du reste, il n’y a plus grand-chose de vivant au village, à part nous, les villageois, Robert Rob', notre maire, le Rat, et mon Oncle, ma seule famille, c’est lui.
 
 -- Kheira, où es-tu ?

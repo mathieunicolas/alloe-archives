@@ -1,7 +1,7 @@
 ---
 auteur: Séléna Anguss
 ---
-(puits)
+![image](../puits.png)
 
 Le jour était clair, le vent tiède et l’ambiance festive. La plupart des villageois, tout juste sortis de leur collation de la mi-journée, repartirent chacun à leurs occupations. March, le ferronnier, consacré depuis des semaines à la production d’ornements consistants à décorer l’église, modeste bâtisse fraîchement achevée, ainsi que d’autres instruments prévus pour la librairie du village, prit paisiblement le chemin de sa forge. Sa rencontre fortuite avec Mylenia, la jeune et pétillante boulangère du quartier, mit son corps, sa tête et ses idées en émois. Jamais encore il n’avait osé aborder pareille beauté, il n’avait pour ainsi dire aucune notion dans les relations naturelles entre un homme et une femme, et tous ces rapports étranges ainsi que ces parades amoureuses lui semblaient aussi floues et périlleuses qu’une nuit plongée dans les abysses d’une grotte.
 

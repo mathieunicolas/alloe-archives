@@ -1,7 +1,7 @@
 ---
 auteur: Philippe Auffret
 ---
-(tonneaux)
+![image](../tonneaux.png)
 
 Tom ne marche pas aussi vite que d’habitude pour ne pas trébucher sur les nombreuses inégalités de terrain, cachées par les hautes herbes, de ce chemin de fortune longeant les marais. Il s’arrête fréquemment pour se retourner et vérifier que Kheira le suit toujours. Un peu plus jeune que lui, moins expérimentée dans ce genre de vagabondage hors des sentiers battus, elle parvient cependant à maintenir une allure identique à celle de son compagnon.
 
